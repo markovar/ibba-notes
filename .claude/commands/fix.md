@@ -8,27 +8,30 @@ description: Revisa ortografía y expande citas bíblicas con texto RV1960
 
 1. **Ortografía**: corrige errores ortográficos y de acentuación
 2. **Citas bíblicas**:
-   - **Cita específica** (ej: Juan 3:16, Romanos 8:28):
-     - Busca texto completo del versículo en Reina-Valera 1960
+   - **Cita específica con versículo(s)** (ej: Juan 3:16, Romanos 8:28, Juan 6:60-66):
+     - Busca texto COMPLETO de TODOS los versículos en Reina-Valera 1960
+     - **IMPORTANTE**: NO usar [...] para omitir texto, extraer versículos completos
+     - Si son múltiples versículos (ej: 6:60-66), incluir TODOS sin omisiones
      - Añade subbullet con texto del versículo
      - Formato:
        ```
        - [texto original con cita bíblica]
-         - "[texto versículo RV1960]"
+         - "[texto COMPLETO versículo(s) RV1960]"
        ```
 
    - **Cita general** (solo capítulo con paráfrasis, ej: "Juan 15" seguido de texto parafraseando):
      - Infiere versículos específicos basándote en paráfrasis (máx 4-5 versículos)
+     - Extraer texto COMPLETO sin omisiones
      - Añade subbullet con cita inferida y texto RV1960
      - Formato:
        ```
        - [texto original parafraseando Juan 15]
-         - Juan 15:X-Y: "[texto versículos RV1960]"
+         - Juan 15:X-Y: "[texto COMPLETO versículos RV1960]"
        ```
 
    - **Marcador CITA** (palabra "CITA" en mayúsculas en la línea):
      - Extrae cita bíblica del texto inmediatamente anterior en la misma línea
-     - Reemplaza "CITA" con subbullet conteniendo cita y texto RV1960
+     - Reemplaza "CITA" con subbullet conteniendo cita y texto RV1960 COMPLETO
      - Formato:
        ```
        * [texto con referencia bíblica] CITA
@@ -36,7 +39,7 @@ description: Revisa ortografía y expande citas bíblicas con texto RV1960
        Se convierte en:
 
        * [texto con referencia bíblica]
-         * Referencia X:Y: "[texto versículo RV1960]"
+         * Referencia X:Y: "[texto COMPLETO versículo RV1960]"
        ```
 
 Usa WebSearch para obtener versículos RV1960 si es necesario.
