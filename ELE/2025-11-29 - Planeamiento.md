@@ -33,9 +33,10 @@
 * Nosotros no ayudamos, servimos a Dios
 * Dios no llama a Espectadores, Dios llama a guerreros
 * Fuimos puestos, escogidos y enviados de Dios
-* Nuestro ministerio importa porque fuimos colocados aqui
+* Nuestro ministerio importa porque fuimos colocados aquí
 * Si vamos a servir lo vamos a hacer con ejemplo
-* Como afecta si el amor gobierna todo lo que hago
+* Cómo afecta si el amor gobierna todo lo que hago
 * Una iglesia que no ama no resplandece
-* Un lider que no ama no transforma
+* Un líder que no ama no transforma
+* Las reglas no pueden cambiar en diversos ministerios
 * 
