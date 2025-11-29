@@ -43,3 +43,5 @@
 * No le decimos a la gente NADA sobre la manera de vestir
 * Judas 22
     * "A algunos que dudan, convencedlos."
+* Tengo que convencer a los que ducan, no ser de los que dudan.
+* 

@@ -227,3 +227,63 @@ Ser Discípulos de Cristo que Aman, Sirven y Dan con Pasión para Solventar Nece
 - No ser líder sobre demasiadas cosas
 - Con más responsabilidad: mayor potencial problemas, mayor tiempo y energía demandada
 - Mantener actitud de siervo
+
+## Normas para Servidores/Maestros IBBA
+
+Propósito: glorificar y honrar Señor Jesucristo, asegurar alta consagración, servir de guía y protección.
+
+### Requisitos Básicos:
+1. Ser salvo y miembro activo IBBA (Hechos 2:41)
+2. Conocer y sostener doctrinas bíblicas bautistas (1 Pedro 3:15)
+3. Diezmar y ofrendar fielmente según Escrituras (Mateo 23:23, 2 Cor 9:6, 1 Cor 16:2)
+4. Mantener testimonio personal, matrimonial y familiar limpio (1 Timoteo 4:12)
+   - Andar en Espíritu, vida separada de cosas mundanas (1 Cor 10:31-33, Gál 5:16-26)
+
+### Abstenciones:
+- Modas extravagantes e inmodestas
+- Bebidas alcohólicas
+- Tabaco
+- Drogas ilegales
+- Bailes, cine, juegos de azar, fornicación, infidelidad, pornografía
+- Entretenimiento que no agrada a Dios
+- Observar: Colosenses 3:1-4:6
+- Tomar en serio: Salmos 15:1-5, Proverbios 16:25-30, Efesios 4:11-5:20, Mateo 6:19-33, Romanos 12:1-21, 1 Juan 2:15-19
+- Procurar vivir: Salmos 15:1-5, Salmos 1:1-3, 2 Pedro 1:1-11, Proverbios 1:1-10, 1 Pedro 2:1-5, Santiago 4:1-10
+
+### Responsabilidades Ministeriales:
+5. Mostrar lealtad al Señor e iglesia, respetar autoridad del misionero, pastor y líderes (Hebreos 13:7,17)
+6. Coordinar planes y actividades con pastor y líderes (1 Corintios 14:40)
+7. Cumplir cursos IBBA, discipulados, Fuente de Luz, seminarios, capacitación continua (2 Timoteo 2:15, Hechos 5:42)
+8. Responsabilidades específicas:
+   - Orar regularmente por alumnos
+   - Visitar y dar seguimiento espiritual
+   - Prepararse bien para ministerio
+   - Ser valiente y esforzado (Gálatas 6:1-2, 9-10)
+
+### Visitación:
+9. Visitar (contacto verbal o personal) al menos una vez cada 2 meses a alumnos designados
+   - Contacto antes del siguiente domingo tras visita
+   - Mantener libro de registro al día
+   - Entregar informe visitación cada 2 meses a superintendente
+   - Visitar mínimo 7 alumnos del período
+   - Sin informe o incompleto = no visitado
+
+### Vestimenta:
+10. Varones: modestos en persona y vestimenta, cabello corto, corbata durante clase
+11. Mujeres: vestir modestamente, no pantalones durante clases (salvo uniforme ministerial)
+
+### Responsabilidad Material:
+12. Cuidar material, mobiliario, equipo
+    - Responsable junto con compañeros por aseo aula y alrededores
+    - Aseo antes de clase
+    - Dejar ordenado para siguiente clase/culto
+
+### Asistencia:
+13. Asistir a todos cultos y actividades según edad y necesidad
+    - Más de 3 ausencias en semestre = suspensión 1 semana
+
+### Sistema Disciplinario:
+1. **Primera llamada**: superintendente/director corrige con amor
+2. **Segunda llamada**: director atiende inmediato, exhorta, comenta a Pastor
+3. **Tercera llamada**: amonestación escrita, suspensión 1 semana, explicar a alumnos razón ausencia
+4. **Cuarta llamada**: suspensión completa del ministerio
