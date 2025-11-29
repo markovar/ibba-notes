@@ -19,4 +19,23 @@
 * Dios NO te pedirá algo que puedas hacer sin Él. Charles Stanley
 * Dios no nos llama a las cosas ordinarias y comunes
 * Debemos salir de nuestra zona de confort
+* ¿Quién me puso en el lugar en que estoy sirviendo?
+* ¿Cómo cambiaría mi ministerio si recuerdo que no fui puesto aquí por un hombre?
+* Fue Dios quien me buscó
+* Juan 15:16
+    * "No me elegisteis vosotros a mí, sino que yo os elegí a vosotros, y os he puesto para que vayáis y llevéis fruto, y vuestro fruto permanezca; para que todo lo que pidiereis al Padre en mi nombre, él os lo dé."
+* 1 Corintios 15:18
+    * "Entonces también los que durmieron en Cristo perecieron."
+* Si Dios nos puso, nuestro puesto de servicio es Santo
+* Nuestra responsabilidad es divina, nuestro llamado es serio, nuestro aporte es Necesario
+* Yo enseñar la Biblia es un beneficio para mí
+* No para nadie más
+* Nosotros no ayudamos, servimos a Dios
+* Dios no llama a Espectadores, Dios llama a guerreros
+* Fuimos puestos, escogidos y enviados de Dios
+* Nuestro ministerio importa porque fuimos colocados aqui
+* Si vamos a servir lo vamos a hacer con ejemplo
+* Como afecta si el amor gobierna todo lo que hago
+* Una iglesia que no ama no resplandece
+* Un lider que no ama no transforma
 * 
