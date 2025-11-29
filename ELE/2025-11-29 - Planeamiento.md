@@ -60,3 +60,4 @@
 * Quieres resultados, pero NO quieres pagar el precio, eso se llama DESEO, no disciplina
 * Quiere ser ejemplo: Abrace el costo
 * Juan 6:60-66
+    * "Al oírlas, muchos de sus discípulos dijeron: Dura es esta palabra; ¿quién la puede oír? Sabiendo Jesús en sí mismo que sus discípulos murmuraban de esto, les dijo: ¿Esto os ofende? ¿Pues qué, si viereis al Hijo del Hombre subir adonde estaba primero? El Espíritu es el que da vida; la carne para nada aprovecha; las palabras que yo os he hablado son espíritu y son vida. Pero hay algunos de vosotros que no creen. Porque Jesús sabía desde el principio quiénes eran los que no creían, y quién le había de entregar. Y dijo: Por eso os he dicho que ninguno puede venir a mí, si no le fuere dado del Padre. Desde entonces muchos de sus discípulos volvieron atrás, y ya no andaban con él."
