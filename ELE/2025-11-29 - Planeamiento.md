@@ -39,4 +39,7 @@
 * Una iglesia que no ama no resplandece
 * Un líder que no ama no transforma
 * Las reglas no pueden cambiar en diversos ministerios
-* 
+# Reglas que Cambian:
+* No le decimos a la gente NADA sobre la manera de vestir
+* Judas 22
+    * "A algunos que dudan, convencedlos."
