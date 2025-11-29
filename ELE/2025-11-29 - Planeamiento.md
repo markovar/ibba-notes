@@ -73,3 +73,4 @@ Servicio
 * Que al menos el 90% de la membresia de la clase Sirva 
 ### Ideas
 * Actividades de pilares incentivar a traer visitas y pagamos un % de un campamento
+* Definir workflow con seguimiento de visitas
