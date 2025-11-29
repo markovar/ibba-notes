@@ -43,18 +43,21 @@
 * No le decimos a la gente NADA sobre la manera de vestir
 * Judas 22
     * "A algunos que dudan, convencedlos."
-* Tengo que convencer a los que ducan, no ser de los que dudan.
-* Si nuestras convicciones son debiles, nuestro animo vacila
+* Tengo que convencer a los que dudan, no ser de los que dudan.
+* Si nuestras convicciones son débiles, nuestro ánimo vacila
 * Todos tenemos que estar firmes en la fe
-* Un lider sin convicciones es uno que se desmorona cuando mas se necesita
+* Un líder sin convicciones es uno que se desmorona cuando más se necesita
 * Si tenemos convicciones nos vamos a sostener
-* Recuerde que nuestra competencia No proviene de nosotros mismos, sino que viene de Dios CITA
-* 1 Cor 12:21
-* Muchos quieren ser visto como ejemplos, pero NO quieren vivir como ejemplos
-* Quieren ser de bendicion para otros pero sin hacer nada
-* Muchos quieren ser usados por Dios pero No quebrantados
-* Pablo dejo su prestigio y comodidad
-* Jesus dejo el Cielo
-* Quieres resultados, pero NO quieres pagar el precio, eso se llama DESEO, No disciplina
-* QUiere ser ejemplo: Abrace el costo
+* Recuerde que nuestra competencia no proviene de nosotros mismos, sino que viene de Dios
+    * 2 Corintios 3:5: "no que seamos competentes por nosotros mismos para pensar algo como de nosotros mismos, sino que nuestra competencia proviene de Dios"
+* 1 Corintios 12:21
+    * "Ni el ojo puede decir a la mano: No te necesito, ni tampoco la cabeza a los pies: No tengo necesidad de vosotros."
+* Muchos quieren ser vistos como ejemplos, pero NO quieren vivir como ejemplos
+* Quieren ser de bendición para otros pero sin hacer nada
+* Muchos quieren ser usados por Dios pero no quebrantados
+* Pablo dejó su prestigio y comodidad
+* Jesús dejó el Cielo
+* Quieres resultados, pero NO quieres pagar el precio, eso se llama DESEO, no disciplina
+* Quiere ser ejemplo: Abrace el costo
 * Juan 6:60-66
+    * "Al oírlas, muchos de sus discípulos dijeron: Dura es esta palabra; ¿quién la puede oír? Sabiendo Jesús en sí mismo que sus discípulos murmuraban de esto, les dijo: ¿Esto os ofende? ¿Pues qué, si viereis al Hijo del Hombre subir adonde estaba primero? [...] Por eso os he dicho que ninguno puede venir a mí, si no le fuere dado del Padre. Desde entonces muchos de sus discípulos volvieron atrás, y ya no andaban con él."
