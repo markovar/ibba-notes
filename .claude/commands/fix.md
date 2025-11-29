@@ -2,7 +2,9 @@
 description: Revisa ortografía y expande citas bíblicas con texto RV1960
 ---
 
-Revisa el archivo abierto en editor:
+**PRIMERO**: Ejecuta /commit para guardar cambios actuales.
+
+**LUEGO**: Revisa el archivo abierto en editor:
 
 1. **Ortografía**: corrige errores ortográficos y de acentuación
 2. **Citas bíblicas**:
@@ -22,6 +24,19 @@ Revisa el archivo abierto en editor:
        ```
        - [texto original parafraseando Juan 15]
          - Juan 15:X-Y: "[texto versículos RV1960]"
+       ```
+
+   - **Marcador CITA** (palabra "CITA" en mayúsculas en la línea):
+     - Extrae cita bíblica del texto inmediatamente anterior en la misma línea
+     - Reemplaza "CITA" con subbullet conteniendo cita y texto RV1960
+     - Formato:
+       ```
+       * [texto con referencia bíblica] CITA
+
+       Se convierte en:
+
+       * [texto con referencia bíblica]
+         * Referencia X:Y: "[texto versículo RV1960]"
        ```
 
 Usa WebSearch para obtener versículos RV1960 si es necesario.

@@ -43,5 +43,12 @@
 * No le decimos a la gente NADA sobre la manera de vestir
 * Judas 22
     * "A algunos que dudan, convencedlos."
-* Tengo que convencer a los que ducan, no ser de los que dudan.
-* 
+* Tengo que convencer a los que dudan, no ser de los que dudan.
+* Si nuestras convicciones son débiles, nuestro ánimo vacila
+* Todos tenemos que estar firmes en la fe
+* Un líder sin convicciones es uno que se desmorona cuando más se necesita
+* Si tenemos convicciones nos vamos a sostener
+* Recuerde que nuestra competencia no proviene de nosotros mismos, sino que viene de Dios
+    * 2 Corintios 3:5: "no que seamos competentes por nosotros mismos para pensar algo como de nosotros mismos, sino que nuestra competencia proviene de Dios"
+* 1 Corintios 12:21
+    * "Ni el ojo puede decir a la mano: No te necesito, ni tampoco la cabeza a los pies: No tengo necesidad de vosotros."
