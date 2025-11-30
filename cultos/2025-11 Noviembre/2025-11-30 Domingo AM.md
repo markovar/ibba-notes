@@ -40,5 +40,7 @@
     - "Pero nosotros esperamos, según sus promesas, cielos nuevos y tierra nueva, en los cuales mora la justicia."
 * 1 Pedro 1:4 nos han dado herencia incorruptible
     - "para una herencia incorruptible, incontaminada e inmarcesible, reservada en los cielos para vosotros"
-* Aprendemos que todo va a estar bien, y que el cumple sus promesas
-* Eclesiastes 5:4-5
+* Aprendemos que todo va a estar bien, y que él cumple sus promesas
+* Eclesiastés 5:4-5
+    - [4] "Cuando a Dios haces promesa, no tardes en cumplirla; porque él no se complace en los insensatos. Cumple lo que prometes."
+    - [5] "Mejor es que no prometas, y no que prometas y no cumplas."
