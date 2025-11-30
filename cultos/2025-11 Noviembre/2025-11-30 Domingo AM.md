@@ -13,10 +13,12 @@
 * Dios no falla a sus promesas, pero muchas todavía no las ha cumplido
 * 2 Timoteo 2:13
   * "Si fuéremos infieles, él permanece fiel; El no puede negarse a sí mismo."
-* Lo que leemos en la biblia no son meramente versiculos, es su caracter
+* Lo que leemos en la Biblia no son meramente versículos, es su carácter
 * En un mundo lleno de oscuridad, necesitamos volver, detenernos y recordar que las promesas de Dios traen luz a nuestra vida
-* Primero porque Dios cumplio TODAS sus promesas en el Pasado
-    * Todo lo que hizo en la Biblia el lo cumplio
+* Primero porque Dios cumplió TODAS sus promesas en el pasado
+    * Todo lo que hizo en la Biblia él lo cumplió
     * Tenemos el registro veraz de un Dios veraz
-    * El Registro Fiel de un Dios Fiel
-* Genesis 3:15
+    * El registro fiel de un Dios fiel
+* Génesis 3:15
+  * "Y pondré enemistad entre ti y la mujer, y entre tu simiente y la simiente suya; esta te herirá en la cabeza, y tú le herirás en el calcañar."
+* Isaias 7:
