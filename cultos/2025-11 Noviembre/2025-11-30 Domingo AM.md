@@ -38,3 +38,7 @@
     - "Por lo demás, me está guardada la corona de justicia, la cual me dará el Señor, juez justo, en aquel día; y no solo a mí, sino también a todos los que aman su venida."
 * 2 Pedro 3:13 viviré en un nuevo cielo
     - "Pero nosotros esperamos, según sus promesas, cielos nuevos y tierra nueva, en los cuales mora la justicia."
+* 1 Pedro 1:4 nos han dado herencia incorruptible
+    - "para una herencia incorruptible, incontaminada e inmarcesible, reservada en los cielos para vosotros"
+* Aprendemos que todo va a estar bien, y que el cumple sus promesas
+* Eclesiastes 5:4-5
