@@ -61,21 +61,21 @@
 * Quiere ser ejemplo: Abrace el costo
 * Juan 6:60-66
     * "Al oírlas, muchos de sus discípulos dijeron: Dura es esta palabra; ¿quién la puede oír? Sabiendo Jesús en sí mismo que sus discípulos murmuraban de esto, les dijo: ¿Esto os ofende? ¿Pues qué, si viereis al Hijo del Hombre subir adonde estaba primero? El Espíritu es el que da vida; la carne para nada aprovecha; las palabras que yo os he hablado son espíritu y son vida. Pero hay algunos de vosotros que no creen. Porque Jesús sabía desde el principio quiénes eran los que no creían, y quién le había de entregar. Y dijo: Por eso os he dicho que ninguno puede venir a mí, si no le fuere dado del Padre. Desde entonces muchos de sus discípulos volvieron atrás, y ya no andaban con él."
-* Metas no alcanzables Frustran, no edifican
-* No se trata de usted, se trata de nosotros, y no de noostros, sino de El
+* Metas no alcanzables frustran, no edifican
+* No se trata de usted, se trata de nosotros, y no de nosotros, sino de Él
 
 ## Metas Ministeriales
-Crecimiento Numerico
-* Hacer Crecer la clase en un 20% de nuevas personas
-* Lograr minimo el 90% de la gente nueva que sean miembros
+Crecimiento Numérico
+* Hacer crecer la clase en un 20% de nuevas personas
+* Lograr mínimo el 90% de la gente nueva que sean miembros
 Servicio
-* Discipular almenos al 80% de la membresia de la clase
-* Que al menos el 90% de la membresia de la clase Sirva 
+* Discipular al menos al 80% de la membresía de la clase
+* Que al menos el 90% de la membresía de la clase sirva
 ### Ideas
 * Actividades de pilares incentivar a traer visitas y pagamos un % de un campamento
 * Definir workflow con seguimiento de visitas
 
-## Planeacion
-Versiculo:
+## Planeación
+Versículo:
 Valor: Humildad
 
