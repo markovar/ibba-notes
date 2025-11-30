@@ -16,23 +16,23 @@ description: Revisa ortografía y expande citas bíblicas con texto RV1960
      - **FORMATO para versículo único**:
        ```
        * Referencia X:Y
-         * "texto COMPLETO versículo RV1960"
+           - "texto COMPLETO versículo RV1960"
        ```
 
      - **FORMATO para versículos múltiples del mismo capítulo** (ej: Juan 3:16-17, Isaías 9:6-7):
        ```
        * Referencia X:Y-Z
-         - [Y] "texto COMPLETO versículo Y RV1960"
-         - [Z] "texto COMPLETO versículo Z RV1960"
+           - [Y] "texto COMPLETO versículo Y RV1960"
+           - [Z] "texto COMPLETO versículo Z RV1960"
        ```
        Cada versículo en subbullet separado con número entre corchetes
 
      - **FORMATO para múltiples citas del mismo libro** (ej: Isaías 7:14, 9:6-7):
        ```
        * Isaías 7:14, 9:6-7
-         - [7:14] "texto COMPLETO versículo 7:14 RV1960"
-         - [9:6] "texto COMPLETO versículo 9:6 RV1960"
-         - [9:7] "texto COMPLETO versículo 9:7 RV1960"
+           - [7:14] "texto COMPLETO versículo 7:14 RV1960"
+           - [9:6] "texto COMPLETO versículo 9:6 RV1960"
+           - [9:7] "texto COMPLETO versículo 9:7 RV1960"
        ```
        Usar formato [capítulo:versículo] cuando hay citas de diferentes capítulos
 
@@ -42,8 +42,8 @@ description: Revisa ortografía y expande citas bíblicas con texto RV1960
      - Añade subbullet con cita inferida y texto RV1960
      - Formato:
        ```
-       - [texto original parafraseando Juan 15]
-         - Juan 15:X-Y: "[texto COMPLETO versículos RV1960]"
+       * [texto original parafraseando Juan 15]
+           - Juan 15:X-Y: "[texto COMPLETO versículos RV1960]"
        ```
 
    - **Marcador CITA** (palabra "CITA" en mayúsculas en la línea):
@@ -56,7 +56,7 @@ description: Revisa ortografía y expande citas bíblicas con texto RV1960
        Se convierte en:
 
        * [texto con referencia bíblica]
-         * Referencia X:Y: "[texto COMPLETO versículo RV1960]"
+           - Referencia X:Y: "[texto COMPLETO versículo RV1960]"
        ```
 
 Usa WebSearch para obtener versículos RV1960 si es necesario.
