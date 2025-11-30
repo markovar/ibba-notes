@@ -12,12 +12,29 @@ description: Revisa ortografía y expande citas bíblicas con texto RV1960
      - Busca texto COMPLETO de TODOS los versículos en Reina-Valera 1960
      - **IMPORTANTE**: NO usar [...] para omitir texto, extraer versículos completos
      - Si son múltiples versículos (ej: 6:60-66), incluir TODOS sin omisiones
-     - Añade subbullet con texto del versículo
-     - Formato:
+
+     - **FORMATO para versículo único**:
        ```
-       - [texto original con cita bíblica]
-         - "[texto COMPLETO versículo(s) RV1960]"
+       * Referencia X:Y
+         * "texto COMPLETO versículo RV1960"
        ```
+
+     - **FORMATO para versículos múltiples del mismo capítulo** (ej: Juan 3:16-17, Isaías 9:6-7):
+       ```
+       * Referencia X:Y-Z
+         - [Y] "texto COMPLETO versículo Y RV1960"
+         - [Z] "texto COMPLETO versículo Z RV1960"
+       ```
+       Cada versículo en subbullet separado con número entre corchetes
+
+     - **FORMATO para múltiples citas del mismo libro** (ej: Isaías 7:14, 9:6-7):
+       ```
+       * Isaías 7:14, 9:6-7
+         - [7:14] "texto COMPLETO versículo 7:14 RV1960"
+         - [9:6] "texto COMPLETO versículo 9:6 RV1960"
+         - [9:7] "texto COMPLETO versículo 9:7 RV1960"
+       ```
+       Usar formato [capítulo:versículo] cuando hay citas de diferentes capítulos
 
    - **Cita general** (solo capítulo con paráfrasis, ej: "Juan 15" seguido de texto parafraseando):
      - Infiere versículos específicos basándote en paráfrasis (máx 4-5 versículos)
