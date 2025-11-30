@@ -10,5 +10,13 @@
 * Jeremías 9:23-24
   * "Así dijo Jehová: No se alabe el sabio en su sabiduría, ni en su valentía se alabe el valiente, ni el rico se alabe en sus riquezas. Mas alábese en esto el que se hubiere de alabar: en entenderme y conocerme, que yo soy Jehová, que hago misericordia, juicio y justicia en la tierra; porque estas cosas quiero, dice Jehová."
 * Todo lo que Dios hace apunta a él, no al ser humano
-* Dios no falla a sus promesas, pero muchas todavia no las ha cumplido
-* 2 Timoteo 2:
+* Dios no falla a sus promesas, pero muchas todavía no las ha cumplido
+* 2 Timoteo 2:13
+  * "Si fuéremos infieles, él permanece fiel; El no puede negarse a sí mismo."
+* Lo que leemos en la biblia no son meramente versiculos, es su caracter
+* En un mundo lleno de oscuridad, necesitamos volver, detenernos y recordar que las promesas de Dios traen luz a nuestra vida
+* Primero porque Dios cumplio TODAS sus promesas en el Pasado
+    * Todo lo que hizo en la Biblia el lo cumplio
+    * Tenemos el registro veraz de un Dios veraz
+    * El Registro Fiel de un Dios Fiel
+* Genesis 3:15
