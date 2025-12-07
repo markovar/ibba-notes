@@ -56,7 +56,8 @@ Predicador Luis Monge
     - 2 Corintios 2:14: "Mas a Dios gracias, el cual nos lleva siempre en triunfo en Cristo Jesús, y por medio de nosotros manifiesta en todo lugar el olor de su conocimiento."
 * Somos más que vencedores en Cristo Jesús
     - Romanos 8:37: "Antes, en todas estas cosas somos más que vencedores por medio de aquel que nos amó."
-* Mi identidad esta en Cristo, no es en lo que el mundo dice, es en lo que Cristo Dice
-* Efesios 1 dice que soy amado por el
-* Pero de tal manera amo Dios al mundo CITA
-* Pero me amo a mi y me amor personalmente
+* Mi identidad está en Cristo, no es en lo que el mundo dice, es en lo que Cristo dice
+* Efesios 1 dice que soy amado por Él (CITA)
+* Pero de tal manera amó Dios al mundo
+    - Juan 3:16: "Porque de tal manera amó Dios al mundo, que ha dado a su Hijo unigénito, para que todo aquel que en él cree, no se pierda, mas tenga vida eterna."
+* Pero me amó a mí y me amó personalmente
