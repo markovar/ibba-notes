@@ -52,4 +52,6 @@ Predicador Luis Monge
 * No soy lo que el mundo dice que soy
 * 2 Corintios 12:9
     - "Y me ha dicho: Bástate mi gracia; porque mi poder se perfecciona en la debilidad. Por tanto, de buena gana me gloriaré más bien en mis debilidades, para que repose sobre mí el poder de Cristo."
-* Jesus nos lleva de victoria en victoria CITA
+* Jesús nos lleva de victoria en victoria
+    - 2 Corintios 2:14: "Mas a Dios gracias, el cual nos lleva siempre en triunfo en Cristo Jesús, y por medio de nosotros manifiesta en todo lugar el olor de su conocimiento."
+* Somos mas que vencedores en Cristo Jesus CITA
