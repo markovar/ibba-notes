@@ -50,4 +50,6 @@ Predicador Luis Monge
 * El Rey David no fue definido por lo que le pasó con Betsabé
 * Yo no soy mis fracasos ni mis pecados pasados
 * No soy lo que el mundo dice que soy
-* 2 Cor 12 Mi poder reposa en la...  
+* 2 Corintios 12:9
+    - "Y me ha dicho: Bástate mi gracia; porque mi poder se perfecciona en la debilidad. Por tanto, de buena gana me gloriaré más bien en mis debilidades, para que repose sobre mí el poder de Cristo."
+* Jesus nos lleva de victoria en victoria CITA
