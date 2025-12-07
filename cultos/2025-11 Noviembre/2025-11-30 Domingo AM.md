@@ -46,3 +46,4 @@
     - [5] "Mejor es que no prometas, y no que prometas y no cumplas."
 * Los que buscan a Jehová no tendrán falta de ningún bien
     - Salmos 34:10: "Los leoncillos necesitan, y tienen hambre; Pero los que buscan a Jehová no tendrán falta de ningún bien."
+- 
