@@ -81,6 +81,6 @@ Predicador Luis Monge
 * Fuimos creados para vivir en santidad
 * Ser valiente es SER DIFERENTE
 * Cuando la luz de Cristo alumbra es para cambiarnos.
-* Si quiero ganar a mi familia para Cristo, no se hace ni a Bibliazos ni haciendo lo mismo que ellos.
+* Si quiero ganar a mi familia para Cristo, no se hace ni a bibliazos ni haciendo lo mismo que ellos.
 * Las personas que han ganado a su familia para Cristo, es porque han hecho algo diferente.
-### Cual es mi identidad? a que estoy abrazado? con que me identifico?
+### ¿Cuál es mi identidad? ¿A qué estoy abrazado? ¿Con qué me identifico?
