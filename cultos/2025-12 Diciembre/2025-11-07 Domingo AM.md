@@ -62,5 +62,9 @@ Predicador Luis Monge
 * Pero de tal manera amó Dios al mundo
     - Juan 3:16: "Porque de tal manera amó Dios al mundo, que ha dado a su Hijo unigénito, para que todo aquel que en él cree, no se pierda, mas tenga vida eterna."
 * Pero me amó a mí y me amó personalmente
-* Lo que estoy viviendo hoy NO es mi vida, es un momento, es una circunstancia, Dios me Dio una VIDA ETERNA.
-* En el habiendo tenido herencia ... a fin de que seamos para alabanza de su gloria CITA
+* Lo que estoy viviendo hoy NO es mi vida, es un momento, es una circunstancia, Dios me dio una VIDA ETERNA.
+* En él habiendo tenido herencia... a fin de que seamos para alabanza de su gloria
+    - [11] "En él asimismo tuvimos herencia, habiendo sido predestinados conforme al propósito del que hace todas las cosas según el designio de su voluntad,"
+    - [12] "a fin de que seamos para alabanza de su gloria, nosotros los que primeramente esperábamos en Cristo."
+* NO defina su estilo de vida, todo su enfoque por el momento que esta viviendo, defina su vida por lo que Cristo hizo en usted viendo la eternidad
+* Cuantas veces en la Biblia dice que vuelva a ver a tras? Ninguna y cuantas dice que ponga la mirada en la eternidad
