@@ -77,8 +77,10 @@ Predicador Luis Monge
 * Si la luz de Cristo ilumina mi vida, no tengo por qué esforzarme para tratar de tener luz propia
 * A santidad fuimos llamados
     - 1 Tesalonicenses 4:7: "Pues no nos ha llamado Dios a inmundicia, sino a santificación."
-* Sentarse a comer con alguien era un simbolo de Paz.
+* Sentarse a comer con alguien era un símbolo de paz.
 * Fuimos creados para vivir en santidad
 * Ser valiente es SER DIFERENTE
 * Cuando la luz de Cristo alumbra es para cambiarnos.
-* 
+* Si quiero ganar a mi familia para Cristo, no se hace ni a Bibliazos ni haciendo lo mismo que ellos.
+* Las personas que han ganado a su familia para Cristo, es porque han hecho algo diferente.
+### Cual es mi identidad? a que estoy abrazado? con que me identifico?
