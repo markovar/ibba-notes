@@ -47,6 +47,6 @@ Predicador Luis Monge
 * Cuando Dios me muestra mi pasado es para mostrarme la grandeza de su gracia.
 * Cuando usted se sale de la luz, no perdemos la salvación, pero hay oscuridad
 * Nosotros NO somos lo que sentimos
-* El Rey david no fue definido por lo que le pao con debora
-* Yo no soy mis fracazos ni mis pecados pasados
+* El Rey David no fue definido por lo que le pasó con Betsabé
+* Yo no soy mis fracasos ni mis pecados pasados
 * No soy lo que el mundo dice que soy
