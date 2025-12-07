@@ -29,17 +29,20 @@ Predicador Luis Monge
     - [12] "a fin de que seamos para alabanza de su gloria, nosotros los que primeramente esperábamos en Cristo"
     - [13] "En él también vosotros, habiendo oído la palabra de verdad, el evangelio de vuestra salvación, y habiendo creído en él, fuisteis sellados con el Espíritu Santo de la promesa"
     - [14] "que es las arras de nuestra herencia hasta la redención de la posesión adquirida, para alabanza de su gloria"
-* En el versiculo 3 dice que soy bendecido
-* En el versiculo 4 dice que soy santo y sin mancha
-* En el versiculo 5 Adoptado
-* En el versiculo 6 Aceptado
-* En el versiculo 7 Redimido y perdonado
-* En el versiculo 8 Sellado con el espiirtu
-* En el versiculo 11 y 12 dice que soy herededor
+* En el versículo 3 dice que soy bendecido
+* En el versículo 4 dice que soy santo y sin mancha
+* En el versículo 5 Adoptado
+* En el versículo 6 Aceptado
+* En el versículo 7 Redimido y perdonado
+* En el versículo 8 Sellado con el Espíritu
+* En el versículo 11 y 12 dice que soy heredero
 * Tres realidades de que la luz de Cristo revela sobre nuestra identidad:
-* Los creyentes necesitamos saber quienes somos y quienees No somos
-### La Cruz de Cristo revela quien NO SOY
+* Los creyentes necesitamos saber quiénes somos y quiénes NO somos
+### La Cruz de Cristo revela quién NO SOY
 * Yo no soy lo que yo siento.
 * Las emociones cambian
-* Cristo NoSi me dejo definir por lo que siento, me voy a perder
-* y eso me va a llevar a encontrar mi identidad eljos de cristo
+* Si me dejo definir por lo que siento, me voy a perder
+* y eso me va a llevar a encontrar mi identidad lejos de Cristo
+* Yo no soy mis fracazos ni mis pecados pasados , la luz No niega el pasado pero redime el pasado
+* Cuando Dios me muestra mi pasado es para mostrarme la grandeza de su gracia.
+* Cuando usted se sale de la luz, no perdemos la salvacion, pero hay oscuridad
