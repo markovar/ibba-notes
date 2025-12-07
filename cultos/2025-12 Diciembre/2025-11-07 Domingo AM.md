@@ -6,4 +6,4 @@ Predicador Luis Monge
 * Cuando no sabemos quienes somos en Cristo, siempre terminaremos viviendo por debajo de lo que Dios diseño para nosotros.
 * Y hasta que Cristo no sea la luz de mi identidad, voy a vivir como un extrano incluso para mi mismo.
 * 2 Corintios 9:15 dice Gracias Dios por su don inefable
-* Juan 1:4, 9
+* Juan 1:5, 9
