@@ -66,5 +66,14 @@ Predicador Luis Monge
 * En él habiendo tenido herencia... a fin de que seamos para alabanza de su gloria
     - [11] "En él asimismo tuvimos herencia, habiendo sido predestinados conforme al propósito del que hace todas las cosas según el designio de su voluntad,"
     - [12] "a fin de que seamos para alabanza de su gloria, nosotros los que primeramente esperábamos en Cristo."
-* NO defina su estilo de vida, todo su enfoque por el momento que esta viviendo, defina su vida por lo que Cristo hizo en usted viendo la eternidad
-* Cuantas veces en la Biblia dice que vuelva a ver a tras? Ninguna y cuantas dice que ponga la mirada en la eternidad
+* NO defina su estilo de vida, todo su enfoque por el momento que está viviendo, defina su vida por lo que Cristo hizo en usted viendo la eternidad
+* ¿Cuántas veces en la Biblia dice que vuelva a ver atrás? Ninguna ¿y cuántas dice que ponga la mirada en la eternidad?
+* En Cristo el futuro SIEMPRE es MUCHO mejor que el presente... y cuando la luz de cristo revela quienes somos 
+### La luz de Cristo revela para que fui creado
+* Mateo 5:16 dice que podemos ser luz para otros CITA
+* y satanas quiere apagarnos la luz de Cristo en nuestra vida
+* y tratamos de tener luz propia que no dura.
+* Si la luz de cristo ilumina mi vida, no tengo porque esforzarme para tratar de tener luz propia
+* fuimos 
+* Efesios 1:4:
+* 1 Tes 4 A Santidad fuimos llamados CITA
