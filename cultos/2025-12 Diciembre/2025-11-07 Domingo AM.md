@@ -10,10 +10,10 @@ Predicador Luis Monge
 * Juan 1:5, 9
     - [1:5] "La luz en las tinieblas resplandece, y las tinieblas no prevalecieron contra ella."
     - [1:9] "Aquella luz verdadera, que alumbra a todo hombre, venía a este mundo."
-* La navidad se trata de Jesus.
-* CUando la luz de Cristo alumbra en nuestras vidas, lo que NOs da es EDENTIDAD
-* Pero que pasa que al tiempo nuestra identidad sea definida por la familia, exito, etc. poruqe mi identidad no esta siendo alumbrada por Cristo
-* En el estaba la Vida y el era la luz de los hombres CITA
-* La luz de los hombres viene a darnos identidad y decirnos quien NO somos
-* Efesios 1:13-14
-* 
+* La navidad se trata de Jesús.
+* Cuando la luz de Cristo alumbra en nuestras vidas, lo que nos da es identidad
+* Pero qué pasa que al tiempo nuestra identidad sea definida por la familia, éxito, etc. porque mi identidad no está siendo alumbrada por Cristo
+* En él estaba la vida, y la vida era la luz de los hombres
+    - Juan 1:4: "En él estaba la vida, y la vida era la luz de los hombres."
+* La luz de los hombres viene a darnos identidad y decirnos quién NO somos
+* Efesios 1:3-14
