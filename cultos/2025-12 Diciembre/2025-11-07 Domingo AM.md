@@ -43,6 +43,10 @@ Predicador Luis Monge
 * Las emociones cambian
 * Si me dejo definir por lo que siento, me voy a perder
 * y eso me va a llevar a encontrar mi identidad lejos de Cristo
-* Yo no soy mis fracazos ni mis pecados pasados , la luz No niega el pasado pero redime el pasado
+* Yo no soy mis fracasos ni mis pecados pasados, la luz no niega el pasado pero redime el pasado
 * Cuando Dios me muestra mi pasado es para mostrarme la grandeza de su gracia.
-* Cuando usted se sale de la luz, no perdemos la salvacion, pero hay oscuridad
+* Cuando usted se sale de la luz, no perdemos la salvación, pero hay oscuridad
+* Nosotros NO somos lo que sentimos
+* El Rey david no fue definido por lo que le pao con debora
+* Yo no soy mis fracazos ni mis pecados pasados
+* No soy lo que el mundo dice que soy
