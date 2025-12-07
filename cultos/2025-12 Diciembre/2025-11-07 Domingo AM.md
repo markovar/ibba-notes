@@ -57,7 +57,10 @@ Predicador Luis Monge
 * Somos más que vencedores en Cristo Jesús
     - Romanos 8:37: "Antes, en todas estas cosas somos más que vencedores por medio de aquel que nos amó."
 * Mi identidad está en Cristo, no es en lo que el mundo dice, es en lo que Cristo dice
-* Efesios 1 dice que soy amado por Él (CITA)
+* Efesios 1 dice que soy amado por Él
+    - Efesios 1:6: "para alabanza de la gloria de su gracia, con la cual nos hizo aceptos en el Amado"
 * Pero de tal manera amó Dios al mundo
     - Juan 3:16: "Porque de tal manera amó Dios al mundo, que ha dado a su Hijo unigénito, para que todo aquel que en él cree, no se pierda, mas tenga vida eterna."
 * Pero me amó a mí y me amó personalmente
+* Lo que estoy viviendo hoy NO es mi vida, es un momento, es una circunstancia, Dios me Dio una VIDA ETERNA.
+* En el habiendo tenido herencia ... a fin de que seamos para alabanza de su gloria CITA
