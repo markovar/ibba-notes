@@ -39,7 +39,7 @@ Predicador Luis Monge
 * Tres realidades de que la luz de Cristo revela sobre nuestra identidad:
 * Los creyentes necesitamos saber quiénes somos y quiénes NO somos
 ### La Cruz de Cristo revela quién NO SOY
-* Yo no soy lo que yo siento.
+#### Yo no soy lo que yo siento.
 * Las emociones cambian
 * Si me dejo definir por lo que siento, me voy a perder
 * y eso me va a llevar a encontrar mi identidad lejos de Cristo
@@ -48,10 +48,15 @@ Predicador Luis Monge
 * Cuando usted se sale de la luz, no perdemos la salvación, pero hay oscuridad
 * Nosotros NO somos lo que sentimos
 * El Rey David no fue definido por lo que le pasó con Betsabé
-* Yo no soy mis fracasos ni mis pecados pasados
-* No soy lo que el mundo dice que soy
+#### Yo no soy mis fracasos ni mis pecados pasados
+#### No soy lo que el mundo dice que soy
 * 2 Corintios 12:9
     - "Y me ha dicho: Bástate mi gracia; porque mi poder se perfecciona en la debilidad. Por tanto, de buena gana me gloriaré más bien en mis debilidades, para que repose sobre mí el poder de Cristo."
 * Jesús nos lleva de victoria en victoria
     - 2 Corintios 2:14: "Mas a Dios gracias, el cual nos lleva siempre en triunfo en Cristo Jesús, y por medio de nosotros manifiesta en todo lugar el olor de su conocimiento."
-* Somos mas que vencedores en Cristo Jesus CITA
+* Somos más que vencedores en Cristo Jesús
+    - Romanos 8:37: "Antes, en todas estas cosas somos más que vencedores por medio de aquel que nos amó."
+* Mi identidad esta en Cristo, no es en lo que el mundo dice, es en lo que Cristo Dice
+* Efesios 1 dice que soy amado por el
+* Pero de tal manera amo Dios al mundo CITA
+* Pero me amo a mi y me amor personalmente
