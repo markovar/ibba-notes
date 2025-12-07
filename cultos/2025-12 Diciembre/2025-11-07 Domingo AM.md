@@ -50,3 +50,4 @@ Predicador Luis Monge
 * El Rey David no fue definido por lo que le pasó con Betsabé
 * Yo no soy mis fracasos ni mis pecados pasados
 * No soy lo que el mundo dice que soy
+* 2 Cor 12 Mi poder reposa en la...  
