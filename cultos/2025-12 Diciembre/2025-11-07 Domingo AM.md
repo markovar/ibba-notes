@@ -68,12 +68,17 @@ Predicador Luis Monge
     - [12] "a fin de que seamos para alabanza de su gloria, nosotros los que primeramente esperábamos en Cristo."
 * NO defina su estilo de vida, todo su enfoque por el momento que está viviendo, defina su vida por lo que Cristo hizo en usted viendo la eternidad
 * ¿Cuántas veces en la Biblia dice que vuelva a ver atrás? Ninguna ¿y cuántas dice que ponga la mirada en la eternidad?
-* En Cristo el futuro SIEMPRE es MUCHO mejor que el presente... y cuando la luz de cristo revela quienes somos 
-### La luz de Cristo revela para que fui creado
-* Mateo 5:16 dice que podemos ser luz para otros CITA
-* y satanas quiere apagarnos la luz de Cristo en nuestra vida
+* En Cristo el futuro SIEMPRE es MUCHO mejor que el presente... y cuando la luz de Cristo revela quiénes somos
+### La luz de Cristo revela para qué fui creado
+* Mateo 5:16 dice que podemos ser luz para otros
+    - "Así alumbre vuestra luz delante de los hombres, para que vean vuestras buenas obras, y glorifiquen a vuestro Padre que está en los cielos."
+* Y Satanás quiere apagarnos la luz de Cristo en nuestra vida
 * y tratamos de tener luz propia que no dura.
-* Si la luz de cristo ilumina mi vida, no tengo porque esforzarme para tratar de tener luz propia
-* fuimos 
-* Efesios 1:4:
-* 1 Tes 4 A Santidad fuimos llamados CITA
+* Si la luz de Cristo ilumina mi vida, no tengo por qué esforzarme para tratar de tener luz propia
+* A santidad fuimos llamados
+    - 1 Tesalonicenses 4:7: "Pues no nos ha llamado Dios a inmundicia, sino a santificación."
+* Sentarse a comer con alguien era un simbolo de Paz.
+* Fuimos creados para vivir en santidad
+* Ser valiente es SER DIFERENTE
+* Cuando la luz de Cristo alumbra es para cambiarnos.
+* 
