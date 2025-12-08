@@ -23,3 +23,9 @@ Predicador: David Ferlini
         - Ahí en ese momento más solo para Jacob, porque al amanecer tendrá que encontrarse con Esaú a quien había engañado.
         - Y en medio de esa oscuridad un varón lo tomó y luchó por él
         - Génesis 32:24
+        - Ya no lucha para ganar, sino para aferrarse a Dios.
+        - Con que cosas luchamos como Jacob. que no queremos dejar de hacer? 
+        - Que queremos hacer? Salir cojeando como Jacob, o peor?
+        - Santiago 4:7
+          - Nuestras luchas no son contra Dios
+          - Son contra Satanas, No es rendirse a Satanas, es a Dios, someterse a el 
