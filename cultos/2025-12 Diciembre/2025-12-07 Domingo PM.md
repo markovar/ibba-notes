@@ -24,11 +24,17 @@ Predicador: David Ferlini
         - Y en medio de esa oscuridad un varón lo tomó y luchó por él
         - Génesis 32:24
         - Ya no lucha para ganar, sino para aferrarse a Dios.
-        - Con que cosas luchamos como Jacob. que no queremos dejar de hacer? 
-        - Que queremos hacer? Salir cojeando como Jacob, o peor?
+        - ¿Con qué cosas luchamos como Jacob, que no queremos dejar de hacer?
+        - ¿Qué queremos hacer? ¿Salir cojeando como Jacob, o peor?
         - Santiago 4:7
+          - "Someteos, pues, a Dios; resistid al diablo, y huirá de vosotros."
           - Nuestras luchas no son contra Dios
-          - Son contra Satanas, No es rendirse a Satanas, es a Dios, someterse a el 
+          - Son contra Satanás, no es rendirse a Satanás, es a Dios, someterse a Él
     - Rendirnos nos acerca a la obediencia
   - Renunciar:
     - Cuando renunciamos, le damos la espalda al pecado y nos volvemos a Dios
+    - Renunciar es muy diferente a ser despedido.
+    - Renucnia al pecado, porque NO le conviene.
+    - Da la espalda al pecado y da algo mejor.
+    - Isaias 55:7
+    - 
