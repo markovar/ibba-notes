@@ -66,4 +66,6 @@ Predicador: David Ferlini
     - [19] "Y daré prodigios arriba en el cielo, Y señales abajo en la tierra, Sangre y fuego y vapor de humo;"
     - [20] "El sol se convertirá en tinieblas, Y la luna en sangre, Antes que venga el día del Señor, Grande y manifiesto;"
     - [21] "Y todo aquel que invocare el nombre del Señor, será salvo."
-  - 
+  - Hechos 2:36, Pedro les hablo CLARO, sus palabras atravesaron los corazones.
+  - Hechos 2:37, QUe haremos? => Esto es ACCION!
+  - Hechos 2:38, pedro les da la respuesta
