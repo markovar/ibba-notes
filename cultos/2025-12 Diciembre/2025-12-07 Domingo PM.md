@@ -66,6 +66,14 @@ Predicador: David Ferlini
     - [19] "Y daré prodigios arriba en el cielo, Y señales abajo en la tierra, Sangre y fuego y vapor de humo;"
     - [20] "El sol se convertirá en tinieblas, Y la luna en sangre, Antes que venga el día del Señor, Grande y manifiesto;"
     - [21] "Y todo aquel que invocare el nombre del Señor, será salvo."
-  - Hechos 2:36, Pedro les hablo CLARO, sus palabras atravesaron los corazones.
-  - Hechos 2:37, QUe haremos? => Esto es ACCION!
-  - Hechos 2:38, pedro les da la respuesta
+  - Hechos 2:36
+    - "Sepa, pues, ciertísimamente toda la casa de Israel, que a este Jesús a quien vosotros crucificasteis, Dios le ha hecho Señor y Cristo."
+    - Pedro les habló CLARO, sus palabras atravesaron los corazones.
+  - Hechos 2:37
+    - "Al oír esto, se compungieron de corazón, y dijeron a Pedro y a los otros apóstoles: Varones hermanos, ¿qué haremos?"
+    - ¿Qué haremos? => Esto es ACCIÓN!
+  - Hechos 2:38
+    - "Pedro les dijo: Arrepentíos, y bautícese cada uno de vosotros en el nombre de Jesucristo para perdón de los pecados; y recibiréis el don del Espíritu Santo."
+    - Pedro les da la respuesta
+  - Responder implica CREER: Creeo de que Jesus vino a esta tierrak, murio y resusuto
+  - 
