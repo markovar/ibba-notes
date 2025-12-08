@@ -29,3 +29,6 @@ Predicador: David Ferlini
         - Santiago 4:7
           - Nuestras luchas no son contra Dios
           - Son contra Satanas, No es rendirse a Satanas, es a Dios, someterse a el 
+    - Rendirnos nos acerca a la obediencia
+  - Renunciar:
+    - Cuando renunciamos, le damos la espalda al pecado y nos volvemos a Dios
