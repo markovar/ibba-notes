@@ -1,0 +1,25 @@
+Predicador: David Ferlini
+- OBediencia a Dios, es una de las 5 dianas de Saetas
+- La obediencia es Muy Muy importante
+- Vamos a hablar de 3 Palabras que comienzan con la letra R, que son muy importantes
+  - Rendirse
+  - Renunciar
+  - Responder
+- Estas palabras nos guiaran a ser obedientes a Dios
+  - Rendirse: a que rendirnos o que rendir?
+    - Debemos rendir nuestro corazon a Dios
+    - Para Dios Rendirse NO ES PERDER, es dejar la lucha contra Dios, y dejerle que tome el control.
+    - Dios nos pide que hagamos lo mismo, dejar la lucha contra Dios y dejarlo que el tome el control
+    - Jacob: 
+      - Salio del vientre aferrado del talon de su hermano Esau, esa historia le encontramos en Genesis
+      - Su nombre significa engañador, astuto.
+        - El engano a esau para quitarle la progenitura
+        - El eganno a su papa Isaac para robarle la bendicion
+        - Huyo de su su casa 
+        - Y trabajo lejos de su familia
+      - Genesis 32
+        - El regresa a su tierra
+        - El hombre que tiene un plan pero no tiene ninguno, su pasado lo alcanza
+        - Ahi en ese momento mas solo para Jacob, porque al amanecer tendra que encontrarse con Esau a quien habia enganado.
+        - Y en medio de esa oscuridad un varon lo tomo y lucho por el
+        - Genesis 32:24
