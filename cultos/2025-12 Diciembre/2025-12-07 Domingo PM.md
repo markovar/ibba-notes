@@ -1,25 +1,25 @@
 Predicador: David Ferlini
-- OBediencia a Dios, es una de las 5 dianas de Saetas
-- La obediencia es Muy Muy importante
-- Vamos a hablar de 3 Palabras que comienzan con la letra R, que son muy importantes
+- Obediencia a Dios, es una de las 5 dianas de Saetas
+- La obediencia es muy importante
+- Vamos a hablar de 3 palabras que comienzan con la letra R, que son muy importantes
   - Rendirse
   - Renunciar
   - Responder
-- Estas palabras nos guiaran a ser obedientes a Dios
-  - Rendirse: a que rendirnos o que rendir?
-    - Debemos rendir nuestro corazon a Dios
-    - Para Dios Rendirse NO ES PERDER, es dejar la lucha contra Dios, y dejerle que tome el control.
-    - Dios nos pide que hagamos lo mismo, dejar la lucha contra Dios y dejarlo que el tome el control
-    - Jacob: 
-      - Salio del vientre aferrado del talon de su hermano Esau, esa historia le encontramos en Genesis
+- Estas palabras nos guiarán a ser obedientes a Dios
+  - Rendirse: ¿A qué rendirnos o qué rendir?
+    - Debemos rendir nuestro corazón a Dios
+    - Para Dios rendirse NO ES PERDER, es dejar la lucha contra Dios, y dejarle que tome el control.
+    - Dios nos pide que hagamos lo mismo, dejar la lucha contra Dios y dejarlo que Él tome el control
+    - Jacob:
+      - Salió del vientre aferrado del talón de su hermano Esaú, esa historia la encontramos en Génesis
       - Su nombre significa engañador, astuto.
-        - El engano a esau para quitarle la progenitura
-        - El eganno a su papa Isaac para robarle la bendicion
-        - Huyo de su su casa 
-        - Y trabajo lejos de su familia
-      - Genesis 32
-        - El regresa a su tierra
+        - Él engañó a Esaú para quitarle la primogenitura
+        - Él engañó a su papá Isaac para robarle la bendición
+        - Huyó de su casa
+        - Y trabajó lejos de su familia
+      - Génesis 32
+        - Él regresa a su tierra
         - El hombre que tiene un plan pero no tiene ninguno, su pasado lo alcanza
-        - Ahi en ese momento mas solo para Jacob, porque al amanecer tendra que encontrarse con Esau a quien habia enganado.
-        - Y en medio de esa oscuridad un varon lo tomo y lucho por el
-        - Genesis 32:24
+        - Ahí en ese momento más solo para Jacob, porque al amanecer tendrá que encontrarse con Esaú a quien había engañado.
+        - Y en medio de esa oscuridad un varón lo tomó y luchó por él
+        - Génesis 32:24
