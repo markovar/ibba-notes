@@ -38,8 +38,21 @@ Predicador: David Ferlini
     - Da la espalda al pecado y da algo mejor.
     - Isaías 55:7
       - "Deje el impío su camino, y el hombre inicuo sus pensamientos, y vuélvase a Jehová, el cual tendrá de él misericordia, y al Dios nuestro, el cual será amplio en perdonar."
-    - Siempre que damos la espalda al pecado, le abrimos los brazoa a algo mayor
+    - Siempre que damos la espalda al pecado, le abrimos los brazos a algo mayor
     - Efesios 4:22
-    - Col 3:5
-    - 2 Cor 6:17
+      - "En cuanto a la pasada manera de vivir, despojaos del viejo hombre, que está viciado conforme a los deseos engañosos,"
+    - Colosenses 3:5
+      - "Haced morir, pues, lo terrenal en vosotros: fornicación, impureza, pasiones desordenadas, malos deseos y avaricia, que es idolatría"
+    - 2 Corintios 6:17
+      - "Por lo cual, Salid de en medio de ellos, y apartaos, dice el Señor, Y no toquéis lo inmundo; Y yo os recibiré"
     - Hebreos 12:1
+      - "Por tanto, nosotros también, teniendo en derredor nuestro tan grande nube de testigos, despojémonos de todo peso y del pecado que nos asedia, y corramos con paciencia la carrera que tenemos por delante,"
+    - Tito 2:11-12
+    - Renunciar no es ser perfectos, es decidir buscar la santidad
+    - Es abrirnos a la obra de Cristo, la cual no podemos hacer, solo el puede.
+    - Renucnicaiar al pecado nos acerca a una obediencia Absoluta
+- Responder
+  - A un llamado 
+  - a obedecer la voz de Dios
+  - Responder es ACCION
+  - Hechos 2:
