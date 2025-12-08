@@ -34,7 +34,12 @@ Predicador: David Ferlini
   - Renunciar:
     - Cuando renunciamos, le damos la espalda al pecado y nos volvemos a Dios
     - Renunciar es muy diferente a ser despedido.
-    - Renucnia al pecado, porque NO le conviene.
+    - Renuncia al pecado, porque NO le conviene.
     - Da la espalda al pecado y da algo mejor.
-    - Isaias 55:7
-    - 
+    - Isaías 55:7
+      - "Deje el impío su camino, y el hombre inicuo sus pensamientos, y vuélvase a Jehová, el cual tendrá de él misericordia, y al Dios nuestro, el cual será amplio en perdonar."
+    - Siempre que damos la espalda al pecado, le abrimos los brazoa a algo mayor
+    - Efesios 4:22
+    - Col 3:5
+    - 2 Cor 6:17
+    - Hebreos 12:1
