@@ -58,3 +58,12 @@ Predicador: David Ferlini
   - A obedecer la voz de Dios
   - Responder es ACCIÓN
   - Hechos 2:14-21
+    - [14] "Entonces Pedro, poniéndose en pie con los once, alzó la voz y les habló diciendo: Varones judíos, y todos los que habitáis en Jerusalén, esto os sea notorio, y oíd mis palabras."
+    - [15] "Porque éstos no están ebrios, como vosotros suponéis, puesto que es la hora tercera del día."
+    - [16] "Mas esto es lo dicho por el profeta Joel:"
+    - [17] "Y en los postreros días, dice Dios, Derramaré de mi Espíritu sobre toda carne, Y vuestros hijos y vuestras hijas profetizarán; Vuestros jóvenes verán visiones, Y vuestros ancianos soñarán sueños;"
+    - [18] "Y de cierto sobre mis siervos y sobre mis siervas en aquellos días Derramaré de mi Espíritu, y profetizarán."
+    - [19] "Y daré prodigios arriba en el cielo, Y señales abajo en la tierra, Sangre y fuego y vapor de humo;"
+    - [20] "El sol se convertirá en tinieblas, Y la luna en sangre, Antes que venga el día del Señor, Grande y manifiesto;"
+    - [21] "Y todo aquel que invocare el nombre del Señor, será salvo."
+  - 
