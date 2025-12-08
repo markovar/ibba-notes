@@ -81,3 +81,5 @@ Predicador: David Ferlini
   - Puede ser que tenga mis cadenas y moviéndome en silencio, no le oculte a Dios lo que Él ya sabe que está ahí y debe ser cambiado
   - Para estar conectado a Dios, debemos RENDIRNOS, RENUNCIAR y RESPONDER
   - Debemos SANTIFICARNOS.
+  - No podemos cambiar el Mundo, pero si podemos cambiar el mundo de Alguien.
+  - Podemos cambiar la eternidad de alguien
