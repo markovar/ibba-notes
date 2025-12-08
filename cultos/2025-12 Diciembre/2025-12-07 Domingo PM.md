@@ -48,11 +48,13 @@ Predicador: David Ferlini
     - Hebreos 12:1
       - "Por tanto, nosotros también, teniendo en derredor nuestro tan grande nube de testigos, despojémonos de todo peso y del pecado que nos asedia, y corramos con paciencia la carrera que tenemos por delante,"
     - Tito 2:11-12
+      - [11] "Porque la gracia de Dios se ha manifestado para salvación a todos los hombres,"
+      - [12] "enseñándonos que, renunciando a la impiedad y a los deseos mundanos, vivamos en este siglo sobria, justa y piadosamente"
     - Renunciar no es ser perfectos, es decidir buscar la santidad
-    - Es abrirnos a la obra de Cristo, la cual no podemos hacer, solo el puede.
-    - Renucnicaiar al pecado nos acerca a una obediencia Absoluta
+    - Es abrirnos a la obra de Cristo, la cual no podemos hacer, solo Él puede.
+    - Renunciar al pecado nos acerca a una obediencia absoluta
 - Responder
-  - A un llamado 
-  - a obedecer la voz de Dios
-  - Responder es ACCION
-  - Hechos 2:
+  - A un llamado
+  - A obedecer la voz de Dios
+  - Responder es ACCIÓN
+  - Hechos 2:14-21
