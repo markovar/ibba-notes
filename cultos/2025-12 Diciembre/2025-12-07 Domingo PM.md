@@ -76,8 +76,8 @@ Predicador: David Ferlini
     - "Pedro les dijo: Arrepentíos, y bautícese cada uno de vosotros en el nombre de Jesucristo para perdón de los pecados; y recibiréis el don del Espíritu Santo."
     - Pedro les da la respuesta
   - Responder implica CREER: Creo de que Jesús vino a esta tierra, murió y resucitó
-  - Pongamos en evidencia NUESTRAS LUCHAS, esas que nos persiguen 
+  - Pongamos en evidencia NUESTRAS LUCHAS, esas que nos persiguen
   - El que no se mueve no siente sus cadenas.
-  - Puede ser que tenga mis cadenas y moviendome en silencio, no le oculte a DIos lo que EL ya sabe que esta ahi y debe ser cambiado
+  - Puede ser que tenga mis cadenas y moviéndome en silencio, no le oculte a Dios lo que Él ya sabe que está ahí y debe ser cambiado
   - Para estar conectado a Dios, debemos RENDIRNOS, RENUNCIAR y RESPONDER
-  - Debemos SANGOLOTERNOS.
+  - Debemos SANTIFICARNOS.
