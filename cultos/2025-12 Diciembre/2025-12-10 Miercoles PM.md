@@ -15,5 +15,5 @@
 - La mente del creyente debe estar governada por Cristo y sus principios
 - Juan 8:12
 - La luz de cristo debe exponer los pensamientos
+- Muy probablemente estamos heridos por comparaciones, rechazos, experiencias traumaticas
 
-modifique @.claude/commands/fix.md para sacar los archivos modificados o no rastreados, luego ejecute @.claude/commands/commit.md y luego ejecute la logica de fix
