@@ -26,4 +26,15 @@
 - La luz de Cristo debe exponer los pensamientos
 - Muy probablemente estamos heridos por comparaciones, rechazos, experiencias traumáticas
 - Cuantas reacciones nacen de la carne (Relaciones, Orgullo, Experiencias, Miedo, Deseos desordenados, incredulidad)
-- Romanos 8:5-8
+* Romanos 8:5-8
+    - [5] "Porque los que son de la carne piensan en las cosas de la carne; pero los que son del Espíritu, en las cosas del Espíritu."
+    - [6] "Porque el ocuparse de la carne es muerte, pero el ocuparse del Espíritu es vida y paz."
+    - [7] "Por cuanto los designios de la carne son enemistad contra Dios; porque no se sujetan a la ley de Dios, ni tampoco pueden;"
+    - [8] "y los que viven según la carne no pueden agradar a Dios."
+* Romanos 8:12
+* QUe hace la luz de Cristo en nuestra vida? 
+  * Nos expone, si vivimos en la carne o en el espiritu
+  * Una mente sin la luz de Cristo facilmente se va a comvertir en un cuarto en donde todo es Duda, confusion, enfrentamiento
+* Que pensamientos gobiernan mi vida.
+* La luz de cristo Renueva, Sana, Reordena los patrones de pensamientos, porque lo que tenemos son patrones de pensamientos
+* Lo que estamos haciendo es repetir patrones que vimos en algun lado
