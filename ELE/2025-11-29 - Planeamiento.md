@@ -23,9 +23,9 @@
 * ¿Cómo cambiaría mi ministerio si recuerdo que no fui puesto aquí por un hombre?
 * Fue Dios quien me buscó
 * Juan 15:16
-    * "No me elegisteis vosotros a mí, sino que yo os elegí a vosotros, y os he puesto para que vayáis y llevéis fruto, y vuestro fruto permanezca; para que todo lo que pidiereis al Padre en mi nombre, él os lo dé."
+    - "No me elegisteis vosotros a mí, sino que yo os elegí a vosotros, y os he puesto para que vayáis y llevéis fruto, y vuestro fruto permanezca; para que todo lo que pidiereis al Padre en mi nombre, él os lo dé."
 * 1 Corintios 15:18
-    * "Entonces también los que durmieron en Cristo perecieron."
+    - "Entonces también los que durmieron en Cristo perecieron."
 * Si Dios nos puso, nuestro puesto de servicio es Santo
 * Nuestra responsabilidad es divina, nuestro llamado es serio, nuestro aporte es Necesario
 * Yo enseñar la Biblia es un beneficio para mí
@@ -41,17 +41,18 @@
 * Las reglas no pueden cambiar en diversos ministerios
 # Reglas que Cambian:
 * No le decimos a la gente NADA sobre la manera de vestir
-* Judas 22
-    * "A algunos que dudan, convencedlos."
+* Judas 1:22
+    - "A algunos que dudan, convencedlos."
 * Tengo que convencer a los que dudan, no ser de los que dudan.
 * Si nuestras convicciones son débiles, nuestro ánimo vacila
 * Todos tenemos que estar firmes en la fe
 * Un líder sin convicciones es uno que se desmorona cuando más se necesita
 * Si tenemos convicciones nos vamos a sostener
 * Recuerde que nuestra competencia no proviene de nosotros mismos, sino que viene de Dios
-    * 2 Corintios 3:5: "no que seamos competentes por nosotros mismos para pensar algo como de nosotros mismos, sino que nuestra competencia proviene de Dios"
+* 2 Corintios 3:5
+    - "no que seamos competentes por nosotros mismos para pensar algo como de nosotros mismos, sino que nuestra competencia proviene de Dios"
 * 1 Corintios 12:21
-    * "Ni el ojo puede decir a la mano: No te necesito, ni tampoco la cabeza a los pies: No tengo necesidad de vosotros."
+    - "Ni el ojo puede decir a la mano: No te necesito, ni tampoco la cabeza a los pies: No tengo necesidad de vosotros."
 * Muchos quieren ser vistos como ejemplos, pero NO quieren vivir como ejemplos
 * Quieren ser de bendición para otros pero sin hacer nada
 * Muchos quieren ser usados por Dios pero no quebrantados
@@ -60,7 +61,13 @@
 * Quieres resultados, pero NO quieres pagar el precio, eso se llama DESEO, no disciplina
 * Quiere ser ejemplo: Abrace el costo
 * Juan 6:60-66
-    * "Al oírlas, muchos de sus discípulos dijeron: Dura es esta palabra; ¿quién la puede oír? Sabiendo Jesús en sí mismo que sus discípulos murmuraban de esto, les dijo: ¿Esto os ofende? ¿Pues qué, si viereis al Hijo del Hombre subir adonde estaba primero? El Espíritu es el que da vida; la carne para nada aprovecha; las palabras que yo os he hablado son espíritu y son vida. Pero hay algunos de vosotros que no creen. Porque Jesús sabía desde el principio quiénes eran los que no creían, y quién le había de entregar. Y dijo: Por eso os he dicho que ninguno puede venir a mí, si no le fuere dado del Padre. Desde entonces muchos de sus discípulos volvieron atrás, y ya no andaban con él."
+    - [60] "Al oírlas, muchos de sus discípulos dijeron: Dura es esta palabra; ¿quién la puede oír?"
+    - [61] "Sabiendo Jesús en sí mismo que sus discípulos murmuraban de esto, les dijo: ¿Esto os ofende?"
+    - [62] "¿Pues qué, si viereis al Hijo del Hombre subir adonde estaba primero?"
+    - [63] "El espíritu es el que da vida; la carne para nada aprovecha; las palabras que yo os he hablado son espíritu y son vida."
+    - [64] "Pero hay algunos de vosotros que no creen. Porque Jesús sabía desde el principio quiénes eran los que no creían, y quién le había de entregar."
+    - [65] "Y dijo: Por eso os he dicho que ninguno puede venir a mí, si no le fuere dado del Padre."
+    - [66] "Desde entonces muchos de sus discípulos volvieron atrás, y ya no andaban con él."
 * Metas no alcanzables frustran, no edifican
 * No se trata de usted, se trata de nosotros, y no de nosotros, sino de Él
 
