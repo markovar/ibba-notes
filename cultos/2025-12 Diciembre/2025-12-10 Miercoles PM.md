@@ -90,5 +90,9 @@
 * Gálatas 6:1, muchos tratan pero no son fuertes
 * Gálatas 6:1
     - "Hermanos, si alguno fuere sorprendido en alguna falta, vosotros que sois espirituales, restauradle con espíritu de mansedumbre, considerándote a ti mismo, no sea que tú también seas tentado."
-* Dios odia al pecado y aborrece al que hace pecado (CITA)
-* 
+* Dios odia al pecado y aborrece al que hace pecado
+* Salmos 5:5
+    - "Los insensatos no estarán delante de tus ojos; Aborreces a todos los que hacen iniquidad."
+* Una mente renovada RESPONDe guiada por el espiritu Santo
+* Respondemos de lo que hay en nuestro corazon
+* Si en mi corazon hay palabra de Dios, presencia de Dios, tendre decisiones, relaciones sanas y una mente en paz, tendre victoria sobre la tentacion
