@@ -75,7 +75,11 @@
 * Filipenses 2:5
     - "Haya, pues, en vosotros este sentir que hubo también en Cristo Jesús"
 * Los sentimientos No nacen en el Corazón, sino en el lóbulo frontal del ser humano
-* Haya pues en nosotros el mismo pensar... que hubo en Cristo Jesus, en lugar de buscar lo terrenal, busque lo eterno
-* Prov 3:5-6
-
+* Haya pues en nosotros el mismo pensar... que hubo en Cristo Jesús, en lugar de buscar lo terrenal, busque lo eterno
+* Proverbios 3:5-6
+    - [5] "Fíate de Jehová de todo tu corazón, Y no te apoyes en tu propia prudencia."
+    - [6] "Reconócelo en todos tus caminos, Y él enderezará tus veredas."
+* La vida no se trata de parecer, se trata de Dios 
+* Proverbios 4 dice que sobre toda cosa guarda tu corazon (CITA)
+* Hebreos 12:15
   
