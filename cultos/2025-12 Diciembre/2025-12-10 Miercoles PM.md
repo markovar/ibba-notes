@@ -93,6 +93,15 @@
 * Dios odia al pecado y aborrece al que hace pecado
 * Salmos 5:5
     - "Los insensatos no estarán delante de tus ojos; Aborreces a todos los que hacen iniquidad."
-* Una mente renovada RESPONDe guiada por el espiritu Santo
-* Respondemos de lo que hay en nuestro corazon
-* Si en mi corazon hay palabra de Dios, presencia de Dios, tendre decisiones, relaciones sanas y una mente en paz, tendre victoria sobre la tentacion
+* Una mente renovada RESPONDe guiada por el espíritu Santo
+* Respondemos de lo que hay en nuestro corazón
+* Si en mi corazón hay palabra de Dios, presencia de Dios, tendré decisiones, relaciones sanas y una mente en paz, tendré victoria sobre la tentación
+* Colosenses 3: Mi vida está escondida en Dios
+* Colosenses 3:3
+    - "Porque habéis muerto, y vuestra vida está escondida con Cristo en Dios."
+* 1 Juan 4 hay que aprender a discernir los espíritus
+* 1 Juan 4:1
+    - "Amados, no creáis a todo espíritu, sino probad los espíritus si son de Dios; porque muchos falsos profetas han salido por el mundo."
+* Si hablan mal de otras personas delante mio, tambien lo haran conmigo. Entonces no lo haga.
+* Mi vida espiritual debe alerjarme de lo que no me conviene.
+* 
