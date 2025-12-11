@@ -32,9 +32,19 @@
     - [7] "Por cuanto los designios de la carne son enemistad contra Dios; porque no se sujetan a la ley de Dios, ni tampoco pueden;"
     - [8] "y los que viven según la carne no pueden agradar a Dios."
 * Romanos 8:12
-* QUe hace la luz de Cristo en nuestra vida? 
-  * Nos expone, si vivimos en la carne o en el espiritu
-  * Una mente sin la luz de Cristo facilmente se va a comvertir en un cuarto en donde todo es Duda, confusion, enfrentamiento
-* Que pensamientos gobiernan mi vida.
-* La luz de cristo Renueva, Sana, Reordena los patrones de pensamientos, porque lo que tenemos son patrones de pensamientos
-* Lo que estamos haciendo es repetir patrones que vimos en algun lado
+    - "Así que, hermanos, deudores somos, no a la carne, para que vivamos conforme a la carne"
+* ¿Qué hace la luz de Cristo en nuestra vida?
+  * Nos expone, si vivimos en la carne o en el espíritu
+  * Una mente sin la luz de Cristo fácilmente se va a convertir en un cuarto en donde todo es Duda, confusión, enfrentamiento
+* ¿Qué pensamientos gobiernan mi vida?
+* La luz de Cristo Renueva, Sana, Reordena los patrones de pensamientos, porque lo que tenemos son patrones de pensamientos
+* Lo que estamos haciendo es repetir patrones que vimos en algún lado
+  * Necesitamos que la luz nos alumbre, la luz trae discernimiento
+* La luz trae Libertad
+* Repitase al espejo:
+   * **YO NO SOY UNA VICTIMA, SOY UN HIJO DE DIOS**
+* Si mi considero victima siempre estare a la defensiva.
+* Yo no estoy solo, Cristo esta conmigo.
+* El va a ir conmigo como Poderoso Gigante (CITA)
+
+  
