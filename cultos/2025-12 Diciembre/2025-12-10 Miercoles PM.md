@@ -80,6 +80,11 @@
     - [5] "Fíate de Jehová de todo tu corazón, Y no te apoyes en tu propia prudencia."
     - [6] "Reconócelo en todos tus caminos, Y él enderezará tus veredas."
 * La vida no se trata de parecer, se trata de Dios 
-* Proverbios 4 dice que sobre toda cosa guarda tu corazon (CITA)
+* Proverbios 4 dice que sobre toda cosa guarda tu corazón
+* Proverbios 4:23
+    - "Sobre toda cosa guardada, guarda tu corazón; Porque de él mana la vida."
 * Hebreos 12:15
-  
+    - "Mirad bien, no sea que alguno deje de alcanzar la gracia de Dios; que brotando alguna raíz de amargura, os estorbe, y por ella muchos sean contaminados;"
+* La persona amargada tiene que pedirle ayuda a Dios
+* Una persona victimizada, amargada lo unico que quiere es envolver a todos los demas
+* Galatas 6:1, muchos tratan pero no son fuertes
