@@ -48,9 +48,29 @@
 * Él va a ir conmigo como Poderoso Gigante
 * Jeremías 20:11
     - "Mas Jehová está conmigo como poderoso gigante; por tanto, los que me persiguen tropezarán, y no prevalecerán; serán avergonzados en gran manera, porque no prosperarán; tendrán perpetua confusión que jamás será olvidada."
-* Geremias 1:4-8,19
-* Satanas no solo quiere que piense mal, sino tambien quiere robarle su proposito.
-* Si nos desvia somos mas facil caer.
-* 
+* Jeremías 1:4-8, 19
+    - [4] "Vino, pues, palabra de Jehová a mí, diciendo:"
+    - [5] "Antes que te formase en el vientre te conocí, y antes que nacieses te santifiqué, te di por profeta a las naciones."
+    - [6] "Y yo dije: ¡Ah! ¡Ah, Señor Jehová! He aquí, no sé hablar, porque soy niño."
+    - [7] "Y me dijo Jehová: No digas: Soy un niño; porque a todo lo que te envíe irás tú, y dirás todo lo que te mande."
+    - [8] "No temas delante de ellos, porque contigo estoy para librarte, dice Jehová."
+    - [19] **"Y pelearán contra ti, pero no te vencerán; porque yo estoy contigo, dice Jehová, para librarte."**
+* Satanás no solo quiere que piense mal, sino también quiere robarle su propósito.
+* Si nos desvía somos más fácil caer.
+* No estoy solo, Dios esta conmigo, si Dios esta conmigo, TODO va a estar bien
+* NO SOY ESCLAVO... SOY LIBRE
+* Satanas me quiere hacer pensar que soy esclavo
+* Necesito contrarestar esos pensamientos que se levantan como una fortaleza.
+* Y hay que DERRIBARLOS y llevarlos cautivos a la obediencia en Cristo (CITA)
+* La luz de Cristo trae orden en mi vida.
+* Cuando permito que Dios me transforme mi manera de pensar, El me va a transformar, porque el tiene el poder para hacerlo
+* Si Cristo NO esta governando mis pensamientos, Alguien mas lo hara.
+* La mente no se queda en StandBy
+  * Lo que lee, escucha, quien gobierna?
+* Por eso debemos abrirle nuestra mente al Senor.
+* Cuando Cristo llega
+  * La luz de cristo llena
+* Filipenses 2:5
+* Los sentimientos No nacen en el Corazon, sino en el lobulo frontal del ser humano
 
   
