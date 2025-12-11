@@ -41,10 +41,16 @@
 * Lo que estamos haciendo es repetir patrones que vimos en algún lado
   * Necesitamos que la luz nos alumbre, la luz trae discernimiento
 * La luz trae Libertad
-* Repitase al espejo:
-   * **YO NO SOY UNA VICTIMA, SOY UN HIJO DE DIOS**
-* Si mi considero victima siempre estare a la defensiva.
-* Yo no estoy solo, Cristo esta conmigo.
-* El va a ir conmigo como Poderoso Gigante (CITA)
+* Repítase al espejo:
+   * **YO NO SOY UNA VÍCTIMA, SOY UN HIJO DE DIOS**
+* Si me considero víctima siempre estaré a la defensiva.
+* Yo no estoy solo, Cristo está conmigo.
+* Él va a ir conmigo como Poderoso Gigante
+* Jeremías 20:11
+    - "Mas Jehová está conmigo como poderoso gigante; por tanto, los que me persiguen tropezarán, y no prevalecerán; serán avergonzados en gran manera, porque no prosperarán; tendrán perpetua confusión que jamás será olvidada."
+* Geremias 1:4-8,19
+* Satanas no solo quiere que piense mal, sino tambien quiere robarle su proposito.
+* Si nos desvia somos mas facil caer.
+* 
 
   
