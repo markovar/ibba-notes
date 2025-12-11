@@ -109,5 +109,5 @@
     - "porque no he rehuido anunciaros todo el consejo de Dios."
 * La oscuridad en la mente del Creyente NO ES NORMAL
 * Si no hay luz es porque algo anda mal
-* Preguntese, revisese, revela mis pensamientos mas ocultos, revela mis patrones que estoy siguiendo de otros que no me convienen.
+* Pregúntese, revísese, revela mis pensamientos más ocultos, revela mis patrones que estoy siguiendo de otros que no me convienen.
 * Establezca su verdad en mi
