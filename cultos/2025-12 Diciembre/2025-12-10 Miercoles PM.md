@@ -1,0 +1,10 @@
+- La luz de Cristo debe transformar mi vida
+- La mente humana es como un laboratorio
+- Si no controlamos lo que entra, nos va a contaminar lo que produce
+- La mente esta llena de Ruidos, esta llena de cosas que se ha normalizado, pero no son sanas, ni correctas
+- Se han normalizado filosofias Contrarias a Cristo
+- Incluso personas que se hacen llamar creyentes, ven y escuchan cosas que ensucian su mente y no les importa
+- Celebran pensamientos que destruyen el alma.
+- Y la gente llega a crear un monton de cosas e intimidarse con un monton de cosas
+- La luz de cristo, alumbra, y exibe lo que esta mal
+- Juan 8:12
