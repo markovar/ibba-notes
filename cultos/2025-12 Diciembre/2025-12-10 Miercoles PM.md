@@ -86,5 +86,9 @@
 * Hebreos 12:15
     - "Mirad bien, no sea que alguno deje de alcanzar la gracia de Dios; que brotando alguna raíz de amargura, os estorbe, y por ella muchos sean contaminados;"
 * La persona amargada tiene que pedirle ayuda a Dios
-* Una persona victimizada, amargada lo unico que quiere es envolver a todos los demas
-* Galatas 6:1, muchos tratan pero no son fuertes
+* Una persona victimizada, amargada lo único que quiere es envolver a todos los demás
+* Gálatas 6:1, muchos tratan pero no son fuertes
+* Gálatas 6:1
+    - "Hermanos, si alguno fuere sorprendido en alguna falta, vosotros que sois espirituales, restauradle con espíritu de mansedumbre, considerándote a ti mismo, no sea que tú también seas tentado."
+* Dios odia al pecado y aborrece al que hace pecado (CITA)
+* 
