@@ -12,3 +12,8 @@
 - Romanos 12:2
 - Efesios 4:17-19
 - 2 Corintios 10:3-5
+- La mente del creyente debe estar governada por Cristo y sus principios
+- Juan 8:12
+- La luz de cristo debe exponer los pensamientos
+
+modifique @.claude/commands/fix.md para sacar los archivos modificados o no rastreados, luego ejecute @.claude/commands/commit.md y luego ejecute la logica de fix

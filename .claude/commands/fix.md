@@ -2,9 +2,11 @@
 description: Revisa ortografía y expande citas bíblicas con texto RV1960
 ---
 
-**PASO 1**: Ejecuta /commit automáticamente para commitear archivos modificados o sin rastrear.
+**PASO 1**: Identifica archivos .md modificados o sin rastrear usando git status.
 
-**PASO 2**: Revisa TODOS los archivos .md modificados o sin rastrear según git status:
+**PASO 2**: Ejecuta /commit automáticamente para commitear archivos modificados o sin rastrear.
+
+**PASO 3**: Revisa archivos .md identificados en PASO 1:
 
 1. **Ortografía**: corrige errores ortográficos y de acentuación
 2. **Citas bíblicas**:
