@@ -102,6 +102,12 @@
 * 1 Juan 4 hay que aprender a discernir los espíritus
 * 1 Juan 4:1
     - "Amados, no creáis a todo espíritu, sino probad los espíritus si son de Dios; porque muchos falsos profetas han salido por el mundo."
-* Si hablan mal de otras personas delante mio, tambien lo haran conmigo. Entonces no lo haga.
-* Mi vida espiritual debe alerjarme de lo que no me conviene.
-* 
+* Si hablan mal de otras personas delante mío, también lo harán conmigo. Entonces no lo haga.
+* Mi vida espiritual debe alejarme de lo que no me conviene.
+* Hebreos 3 y Hechos 20 dicen que los pastores tienen que predicarle todo el consejo de Dios
+* Hechos 20:27
+    - "porque no he rehuido anunciaros todo el consejo de Dios."
+* La oscuridad en la mente del Creyente NO ES NORMAL
+* Si no hay luz es porque algo anda mal
+* Preguntese, revisese, revela mis pensamientos mas ocultos, revela mis patrones que estoy siguiendo de otros que no me convienen.
+* Establezca su verdad en mi
