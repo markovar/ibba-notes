@@ -8,3 +8,7 @@
 - Y la gente llega a crear un monton de cosas e intimidarse con un monton de cosas
 - La luz de cristo, alumbra, y exibe lo que esta mal
 - Juan 8:12
+- Nunca nunca menosprecie sus pensamientos, porque mi vida se va a mover en la direccion de mis pensamientos mas fuertes
+- Romanos 12:2
+- Efesios 4:17-19
+- 2 Corintios 10:3-5

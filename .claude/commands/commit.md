@@ -2,12 +2,12 @@
 description: Revisa cambios, crea commit y pushea
 ---
 
-Revisa archivos modificados según git status:
+Revisa archivos según git status (modificados Y sin rastrear):
 
-1. **Lee archivos modificados**: usa Read para ver cambios
-2. **Infiere cambios**: determina qué se modificó
+1. **Lee archivos**: usa Read para ver contenido de archivos modificados o nuevos
+2. **Infiere cambios**: determina qué se modificó o agregó
 3. **Genera mensaje commit**: formato conciso basado en cambios detectados
-4. **Commit y push**: ejecuta git add, commit y push en una sola operación
+4. **Commit y push**: ejecuta git add (para todos), commit y push en una sola operación
 
 Usa formato commit:
 ```
