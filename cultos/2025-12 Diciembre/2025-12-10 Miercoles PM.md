@@ -57,20 +57,25 @@
     - [19] **"Y pelearán contra ti, pero no te vencerán; porque yo estoy contigo, dice Jehová, para librarte."**
 * Satanás no solo quiere que piense mal, sino también quiere robarle su propósito.
 * Si nos desvía somos más fácil caer.
-* No estoy solo, Dios esta conmigo, si Dios esta conmigo, TODO va a estar bien
+* No estoy solo, Dios está conmigo, si Dios está conmigo, TODO va a estar bien
 * NO SOY ESCLAVO... SOY LIBRE
-* Satanas me quiere hacer pensar que soy esclavo
+* Satanás me quiere hacer pensar que soy esclavo
 * Necesito contrarestar esos pensamientos que se levantan como una fortaleza.
-* Y hay que DERRIBARLOS y llevarlos cautivos a la obediencia en Cristo (CITA)
+* Y hay que DERRIBARLOS y llevarlos cautivos a la obediencia en Cristo
+* 2 Corintios 10:5
+    - "derribando argumentos y toda altivez que se levanta contra el conocimiento de Dios, y llevando cautivo todo pensamiento a la obediencia a Cristo"
 * La luz de Cristo trae orden en mi vida.
-* Cuando permito que Dios me transforme mi manera de pensar, El me va a transformar, porque el tiene el poder para hacerlo
-* Si Cristo NO esta governando mis pensamientos, Alguien mas lo hara.
+* Cuando permito que Dios me transforme mi manera de pensar, Él me va a transformar, porque él tiene el poder para hacerlo
+* Si Cristo NO está gobernando mis pensamientos, Alguien más lo hará.
 * La mente no se queda en StandBy
   * Lo que lee, escucha, quien gobierna?
-* Por eso debemos abrirle nuestra mente al Senor.
+* Por eso debemos abrirle nuestra mente al Señor.
 * Cuando Cristo llega
-  * La luz de cristo llena
+  * La luz de Cristo llena
 * Filipenses 2:5
-* Los sentimientos No nacen en el Corazon, sino en el lobulo frontal del ser humano
+    - "Haya, pues, en vosotros este sentir que hubo también en Cristo Jesús"
+* Los sentimientos No nacen en el Corazón, sino en el lóbulo frontal del ser humano
+* Haya pues en nosotros el mismo pensar... que hubo en Cristo Jesus, en lugar de buscar lo terrenal, busque lo eterno
+* Prov 3:5-6
 
   
