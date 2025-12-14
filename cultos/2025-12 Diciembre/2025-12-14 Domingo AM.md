@@ -77,7 +77,7 @@
 * Salmos 37:24
     - "Cuando el hombre cayere, no quedará postrado, Porque Jehová sostiene su mano."
 * Esa es la garantía, nunca quedar postrado
-* La vida mas segura y fructifera no es la mas comoda, es la que esta asegurada en la luz de Cristo
-* En cada area que tomo decisiones, en mi matrimonio, finanzas, ministerio, traajo, metas, familia, futuro, si Cristo no dirige mi camino, otra cosa lo hara
-* Y la diferencia enorme es que si usted tropieza, Jesuys no estara ahi para sostenerme
-* Que mis decisiones esten fundamentadas en la luz de Cristo
+* La vida más segura y fructífera no es la más cómoda, es la que está asegurada en la luz de Cristo
+* En cada área que tomo decisiones, en mi matrimonio, finanzas, ministerio, trabajo, metas, familia, futuro, si Cristo no dirige mi camino, otra cosa lo hará
+* Y la diferencia enorme es que si usted tropieza, Jesús no estará ahí para sostenerme
+* Que mis decisiones estén fundamentadas en la luz de Cristo
