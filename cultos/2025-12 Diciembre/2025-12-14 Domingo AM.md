@@ -43,6 +43,6 @@
 * **La voz más peligrosa NO es la del enemigo, la Voz más peligrosa es la MÍA cuando no estoy sometido a Cristo**
 * Cuántas decisiones equivocadas he tomado porque faltó la luz de Jesús
 * La vida no le va a tratar como le tratan en la Iglesia
-* Yo deberia ser el mayor apoyo de mis hijos, no la mayor piedra de tropiezo
-* Cristo lo que qiere es evitarme futuros dolores.
-* 
+* Yo debería ser el mayor apoyo de mis hijos, no la mayor piedra de tropiezo
+* Cristo lo que quiere es evitarme futuros dolores.
+* No son caprichos de Dios, el va adelante
