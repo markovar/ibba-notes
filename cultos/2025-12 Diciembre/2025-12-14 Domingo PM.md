@@ -13,3 +13,8 @@
     * Dios no solo consuela
     * Él sana las heridas de nuestro corazón
   * Juan 16:33
+      - "Estas cosas os he hablado para que en mí tengáis paz. En el mundo tendréis aflicción; pero confiad, yo he vencido al mundo."
+  * Jesus No niega el dolor humano
+  * Si creemos en El, no vamos a quedar derribados.
+  * Hebreos 12:4, tenemos un Dios que se compadece de nosotros
+  * 
