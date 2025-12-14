@@ -14,9 +14,17 @@
     * Él sana las heridas de nuestro corazón
   * Juan 16:33
       - "Estas cosas os he hablado para que en mí tengáis paz. En el mundo tendréis aflicción; pero confiad, yo he vencido al mundo."
-  * Jesus No niega el dolor humano
-  * Si creemos en El, no vamos a quedar derribados.
-  * Hebreos 12:4, tenemos un Dios que se compadece de nosotros
+  * Jesús no niega el dolor humano
+  * Si creemos en Él, no vamos a quedar derribados.
+  * Hebreos 4:15
+      - "Porque no tenemos un sumo sacerdote que no pueda compadecerse de nuestras debilidades, sino uno que fue tentado en todo según nuestra semejanza, pero sin pecado."
+    * Tenemos un Dios que se compadece de nosotros
   * #1 La luz de Cristo, revela la herida que no hemos querido ver.
-    * La luz cre Cristo incluso iluminal las hericas naturales
+    * La luz de Cristo incluso ilumina las heridas naturales
+    * Jesus puede sanar con su luz, incluso heridas espirituales, la culpa.
+    * La Culpa NO viene de Dios
+      * La verguenza viene del enemigo, no viene de Dios
+    * Temporadas de sequedad espiritual en su vida
+    * Salmos 32 Todo su verdor se convirtio en sequedades de verano (CITA)
+    * **Dios NUNCA sana lo que insistimos en ocultar**
     * 
