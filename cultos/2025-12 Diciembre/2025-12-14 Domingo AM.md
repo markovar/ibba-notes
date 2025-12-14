@@ -70,6 +70,9 @@
 * Y eso me incluye a mí.
 * Y hay un problema grande si yo no le pido permiso a Dios
 * Cuándo fue la última vez que yo le pedí permiso a Dios
-* PRoverbios 28:13
-* No es cualquiera, es el que los confieza y se aparta
+* Proverbios 28:13
+    - "El que encubre sus pecados no prosperará; Mas el que los confiesa y se aparta alcanzará misericordia."
+* No es cualquiera, es el que los confiesa y se aparta
 * Creemos que nosotros pecamos y Dios tiene que salvarnos de las que sea
+* * Salmos 37:24
+* Esa es la garantia, nunca quedar postrado
