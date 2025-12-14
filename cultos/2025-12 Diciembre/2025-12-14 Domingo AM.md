@@ -27,17 +27,19 @@
 * cuando estoy con personas que no aman a Jesús o que NO quieren consagrarse a Jesús, su estilo de vida y prioridades indican que no quieren consagrarse al Señor
 * Proverbios 14:12
     - "Hay camino que al hombre le parece derecho; Pero su fin es camino de muerte."
-* La ciencia de la Logica:
-  * La logica suya no es la logica mia.
-  * Por temperamento, por formacion, por crianza, por experiencias
-* El mundo nos ofrece decisiones logicas que su fin es camino de muerte
-* Tenemos que tener mucho cuidado por tomar decisiones por "logica"
-* Las decisiones no se toman por "Logica" sino por "Temor a Dios"
+* La ciencia de la Lógica:
+  * La lógica suya no es la lógica mía.
+  * Por temperamento, por formación, por crianza, por experiencias
+* El mundo nos ofrece decisiones lógicas que su fin es camino de muerte
+* Tenemos que tener mucho cuidado por tomar decisiones por "lógica"
+* Las decisiones no se toman por "Lógica" sino por "Temor a Dios"
 * No busque a alguien que tenga los mismos conocimientos suyos, busque a alguien que tenga conocimientos más amplios que usted
-* CUIDADO con tomar decisiones por el camino que esta governado por las decisiones
-* El que siembra para la carne de la carne cegara corrupcion (CITA)
+* CUIDADO con tomar decisiones por el camino que está gobernado por las decisiones
+* El que siembra para la carne de la carne segará corrupción
+    - Gálatas 6:8: "Porque el que siembra para su carne, de la carne segará corrupción; mas el que siembra para el Espíritu, del Espíritu segará vida eterna."
 * No se toman decisiones por temor, ni por Orgullo, no se toman decisiones por inseguridad
-* No se toman decisiones por serguiados por presiones externa, por comparaciones... 
+* No se toman decisiones por ser guiados por presiones externa, por comparaciones...
 * Se toman decisiones por la palabra de Dios
-* **La voz mas peligrosa NO es la del enemigo, la Voz mas peligrosa es la MIA cuando no estoy sometido a Crisot**
-* 
+* **La voz más peligrosa NO es la del enemigo, la Voz más peligrosa es la MÍA cuando no estoy sometido a Cristo**
+* Cuantas decisiones equivocadas he tomado porque falto la luz de Jesus
+* La vida no le va a tratar como le tratan en la Iglesia
