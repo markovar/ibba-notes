@@ -55,17 +55,21 @@
 * Colosenses 3:15
     - "Y la paz de Dios gobierne en vuestros corazones, a la que asimismo fuisteis llamados en un solo cuerpo; y sed agradecidos."
 * Hay quienes pecan y se apartan de la iglesia y es lo contrario
-* La luz de Cristo Nos da paz en la Direccion correcta
+* La luz de Cristo Nos da paz en la Dirección correcta
 * Algo no puede venir de Dios si es contrario a la voluntad de Dios.
-* La luz de Cristo da sabiduria
+* La luz de Cristo da sabiduría
 ## La Luz de Cristo establece un Rumbo Seguro para toda la vida
 * Salmos 37:23
-* Tenemos un concepto erroneo de pedir permiso
+    - "Por Jehová son ordenados los pasos del hombre, Y él aprueba su camino."
+* Tenemos un concepto erróneo de pedir permiso
 * Creemos que pedir permiso es algo como subyugar
 * Y eso lo trasladamos a Dios y habemos muchos cristianos que no le pedimos permiso a Dios para nada
-* solo vivimos, y el Es mi padre celestial
-* TODA potestad me ha sido dada en el cielo y la tierra (CITA)
-* Y eso me incluye a mi.
+* solo vivimos, y él Es mi padre celestial
+* TODA potestad me ha sido dada en el cielo y la tierra
+    - Mateo 28:18: "Y Jesús se acercó y les habló diciendo: Toda potestad me es dada en el cielo y en la tierra."
+* Y eso me incluye a mí.
 * Y hay un problema grande si yo no le pido permiso a Dios
-* Cuando fue la ultima vez que yo le pedi permiso a Dios
-* 
+* Cuándo fue la última vez que yo le pedí permiso a Dios
+* PRoverbios 28:13
+* No es cualquiera, es el que los confieza y se aparta
+* Creemos que nosotros pecamos y Dios tiene que salvarnos de las que sea
