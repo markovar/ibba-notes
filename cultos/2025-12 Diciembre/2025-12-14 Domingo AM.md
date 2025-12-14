@@ -16,13 +16,28 @@
 * Somos torpes
 * Isaías 35:8
     - "Y habrá allí calzada y camino, y será llamado Camino de Santidad; no pasará inmundo por él, sino que él mismo estará con ellos; el que anduviere en este camino, por torpe que sea, no se extraviará."
-* El Cristianismo no se trata de Religiosidad, se trata de CONSAGRACION y se trata de estar apartado para DIOS, para caminar para el
-* Todas mis decisiones dependen de mi consagracion.
+* El Cristianismo no se trata de Religiosidad, se trata de CONSAGRACIÓN y se trata de estar apartado para DIOS, para caminar para él
+* Todas mis decisiones dependen de mi consagración.
   *   En resumen: Consagración es vivir completamente para Dios, separado del mundo, dedicado a Sus propósitos, en proceso continuo de santificación.
 * Tres verdades, como Cristo Ilumina mis decisiones
-## 1. La Luz de Cristo EXPONE los Caminos que me llevan a la Confusion
-* No solo me muestra el camino por donde debo andar, sino que tambien me muestra lo que debo evitar
-* Pero cuando no esta me voy a tropezar una y otra vez, porque Crisot no esta alumbrando mi vida
+## 1. La Luz de Cristo EXPONE los Caminos que me llevan a la Confusión
+* No solo me muestra el camino por donde debo andar, sino que también me muestra lo que debo evitar
+* Pero cuando no está me voy a tropezar una y otra vez, porque Cristo no está alumbrando mi vida
 * Necesito entender que hay caminos que parecen buenos al ojo del hombre
-* cuando estoy con personas que no aman a Jesus o que NO quieren consagrarse a Jesus, su estilo de vida y prioridades indican que no quieren consagrarse al Senor
+* cuando estoy con personas que no aman a Jesús o que NO quieren consagrarse a Jesús, su estilo de vida y prioridades indican que no quieren consagrarse al Señor
 * Proverbios 14:12
+    - "Hay camino que al hombre le parece derecho; Pero su fin es camino de muerte."
+* La ciencia de la Logica:
+  * La logica suya no es la logica mia.
+  * Por temperamento, por formacion, por crianza, por experiencias
+* El mundo nos ofrece decisiones logicas que su fin es camino de muerte
+* Tenemos que tener mucho cuidado por tomar decisiones por "logica"
+* Las decisiones no se toman por "Logica" sino por "Temor a Dios"
+* No busque a alguien que tenga los mismos conocimientos suyos, busque a alguien que tenga conocimientos más amplios que usted
+* CUIDADO con tomar decisiones por el camino que esta governado por las decisiones
+* El que siembra para la carne de la carne cegara corrupcion (CITA)
+* No se toman decisiones por temor, ni por Orgullo, no se toman decisiones por inseguridad
+* No se toman decisiones por serguiados por presiones externa, por comparaciones... 
+* Se toman decisiones por la palabra de Dios
+* **La voz mas peligrosa NO es la del enemigo, la Voz mas peligrosa es la MIA cuando no estoy sometido a Crisot**
+* 
