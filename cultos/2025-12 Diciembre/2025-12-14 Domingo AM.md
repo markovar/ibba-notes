@@ -74,5 +74,10 @@
     - "El que encubre sus pecados no prosperará; Mas el que los confiesa y se aparta alcanzará misericordia."
 * No es cualquiera, es el que los confiesa y se aparta
 * Creemos que nosotros pecamos y Dios tiene que salvarnos de las que sea
-* * Salmos 37:24
-* Esa es la garantia, nunca quedar postrado
+* Salmos 37:24
+    - "Cuando el hombre cayere, no quedará postrado, Porque Jehová sostiene su mano."
+* Esa es la garantía, nunca quedar postrado
+* La vida mas segura y fructifera no es la mas comoda, es la que esta asegurada en la luz de Cristo
+* En cada area que tomo decisiones, en mi matrimonio, finanzas, ministerio, traajo, metas, familia, futuro, si Cristo no dirige mi camino, otra cosa lo hara
+* Y la diferencia enorme es que si usted tropieza, Jesuys no estara ahi para sostenerme
+* Que mis decisiones esten fundamentadas en la luz de Cristo
