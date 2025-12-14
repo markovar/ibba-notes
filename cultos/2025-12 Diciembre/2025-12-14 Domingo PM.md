@@ -9,6 +9,7 @@
       - [18] "Cercano está Jehová a los quebrantados de corazón; Y salva a los contritos de espíritu."
     * Dios no es distante frente al Dolor
   * Salmos 147:3
-    * Dio sno solo consuela
-    * El Sana las heridas de nuestro corazon
-  * 
+      - "Él sana a los quebrantados de corazón, Y venda sus heridas."
+    * Dios no solo consuela
+    * Él sana las heridas de nuestro corazón
+  * Juan 16:33
