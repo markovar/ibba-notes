@@ -50,4 +50,5 @@
 * Las familias que mas lejos han llegado es porque han tenido buenos mentores.
 ## 2. La luz de Cristo ilumina mis pasos para tomar decisiones
 * Salmos 119:130
-* 
+* Ilumina mis intenciones, motivaciones, y me da paz hacia donde voy.
+* Colosenses 3:15
