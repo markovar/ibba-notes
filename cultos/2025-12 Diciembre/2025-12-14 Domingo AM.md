@@ -45,4 +45,9 @@
 * La vida no le va a tratar como le tratan en la Iglesia
 * Yo debería ser el mayor apoyo de mis hijos, no la mayor piedra de tropiezo
 * Cristo lo que quiere es evitarme futuros dolores.
-* No son caprichos de Dios, el va adelante
+* No son caprichos de Dios, él va adelante
+* Si hay un hombre que no busca consejo, mejor no
+* Las familias que mas lejos han llegado es porque han tenido buenos mentores.
+## 2. La luz de Cristo ilumina mis pasos para tomar decisiones
+* Salmos 119:130
+* 
