@@ -41,5 +41,8 @@
 * No se toman decisiones por ser guiados por presiones externa, por comparaciones...
 * Se toman decisiones por la palabra de Dios
 * **La voz más peligrosa NO es la del enemigo, la Voz más peligrosa es la MÍA cuando no estoy sometido a Cristo**
-* Cuantas decisiones equivocadas he tomado porque falto la luz de Jesus
+* Cuántas decisiones equivocadas he tomado porque faltó la luz de Jesús
 * La vida no le va a tratar como le tratan en la Iglesia
+* Yo deberia ser el mayor apoyo de mis hijos, no la mayor piedra de tropiezo
+* Cristo lo que qiere es evitarme futuros dolores.
+* 
