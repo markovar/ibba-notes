@@ -17,4 +17,6 @@
   * Jesus No niega el dolor humano
   * Si creemos en El, no vamos a quedar derribados.
   * Hebreos 12:4, tenemos un Dios que se compadece de nosotros
-  * 
+  * #1 La luz de Cristo, revela la herida que no hemos querido ver.
+    * La luz cre Cristo incluso iluminal las hericas naturales
+    * 
