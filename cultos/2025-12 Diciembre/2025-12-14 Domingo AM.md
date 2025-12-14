@@ -47,8 +47,25 @@
 * Cristo lo que quiere es evitarme futuros dolores.
 * No son caprichos de Dios, él va adelante
 * Si hay un hombre que no busca consejo, mejor no
-* Las familias que mas lejos han llegado es porque han tenido buenos mentores.
+* Las familias que más lejos han llegado es porque han tenido buenos mentores.
 ## 2. La luz de Cristo ilumina mis pasos para tomar decisiones
 * Salmos 119:130
+    - "La exposición de tus palabras alumbra; Hace entender a los simples."
 * Ilumina mis intenciones, motivaciones, y me da paz hacia donde voy.
 * Colosenses 3:15
+    - "Y la paz de Dios gobierne en vuestros corazones, a la que asimismo fuisteis llamados en un solo cuerpo; y sed agradecidos."
+* Hay quienes pecan y se apartan de la iglesia y es lo contrario
+* La luz de Cristo Nos da paz en la Direccion correcta
+* Algo no puede venir de Dios si es contrario a la voluntad de Dios.
+* La luz de Cristo da sabiduria
+## La Luz de Cristo establece un Rumbo Seguro para toda la vida
+* Salmos 37:23
+* Tenemos un concepto erroneo de pedir permiso
+* Creemos que pedir permiso es algo como subyugar
+* Y eso lo trasladamos a Dios y habemos muchos cristianos que no le pedimos permiso a Dios para nada
+* solo vivimos, y el Es mi padre celestial
+* TODA potestad me ha sido dada en el cielo y la tierra (CITA)
+* Y eso me incluye a mi.
+* Y hay un problema grande si yo no le pido permiso a Dios
+* Cuando fue la ultima vez que yo le pedi permiso a Dios
+* 
