@@ -59,5 +59,5 @@
   - "Y sabemos que a los que aman a Dios, todas las cosas les ayudan a bien, esto es, a los que conforme a su propósito son llamados."
 - Por el dolor no estoy viendo el favor de Dios
 - Dios puede usar nuestro MAYOR dolor como una plataforma para dar luz a otras personas.
-- La herida que le entregas a Cristo se conveirte en un lugar en donde su gloria Resplandece.
-- Dios no usa una herida hasta que este sanada
+- La herida que le entregas a Cristo se convierte en un lugar en donde su gloria Resplandece.
+- Dios no usa una herida hasta que esté sanada
