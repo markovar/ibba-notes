@@ -19,12 +19,17 @@
   * Hebreos 4:15
       - "Porque no tenemos un sumo sacerdote que no pueda compadecerse de nuestras debilidades, sino uno que fue tentado en todo según nuestra semejanza, pero sin pecado."
     * Tenemos un Dios que se compadece de nosotros
-  * #1 La luz de Cristo, revela la herida que no hemos querido ver.
+  ### #1 La luz de Cristo, revela la herida que no hemos querido ver.
     * La luz de Cristo incluso ilumina las heridas naturales
-    * Jesus puede sanar con su luz, incluso heridas espirituales, la culpa.
+    * Jesús puede sanar con su luz, incluso heridas espirituales, la culpa.
     * La Culpa NO viene de Dios
-      * La verguenza viene del enemigo, no viene de Dios
+      * La vergüenza viene del enemigo, no viene de Dios
     * Temporadas de sequedad espiritual en su vida
-    * Salmos 32 Todo su verdor se convirtio en sequedades de verano (CITA)
+    * Salmos 32 Todo su verdor se convirtió en sequedades de verano
+      - Salmos 32:4: "Porque de día y de noche se agravó sobre mí tu mano; Se volvió mi verdor en sequedades de verano. Selah"
     * **Dios NUNCA sana lo que insistimos en ocultar**
+    * La luz no llega donde vivimos ocultando
+    * Las cosas no se ocultan, las cosas se arreglan
+  ### #2 La Luz de Cristo Sana lo que la oscuridad profunda ha danado
+    * Salmos 34:18
     * 
