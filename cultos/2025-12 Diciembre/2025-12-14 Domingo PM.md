@@ -39,3 +39,6 @@
       - "Envió su palabra, y los sanó, Y los libró de su ruina."
     * Su palabra tiene la capacidad de eliminar heridas internas y reemplazarlo con verdades eternas
     * 2 Corintios 12:9
+      - "Y me ha dicho: Bástate mi gracia; porque mi poder se perfecciona en la debilidad. Por tanto, de buena gana me gloriaré más bien en mis debilidades, para que repose sobre mí el poder de Cristo."
+    * Estamos aqui por el poder de Dios.
+    * Juan 14:27
