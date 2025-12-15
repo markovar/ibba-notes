@@ -30,6 +30,9 @@
     * **Dios NUNCA sana lo que insistimos en ocultar**
     * La luz no llega donde vivimos ocultando
     * Las cosas no se ocultan, las cosas se arreglan
-  ### #2 La Luz de Cristo Sana lo que la oscuridad profunda ha danado
+  ### #2 La Luz de Cristo Sana lo que la oscuridad profunda ha dañado
     * Salmos 34:18
-    * 
+      - "Cercano está Jehová a los quebrantados de corazón; Y salva a los contritos de espíritu."
+    * Es Dios mismo el que esta cercano.
+    * Jesus no solo senala lo que esta mal, sino lo sana
+    * Salmos 107:20
