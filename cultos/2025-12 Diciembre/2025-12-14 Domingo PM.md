@@ -40,5 +40,15 @@
     * Su palabra tiene la capacidad de eliminar heridas internas y reemplazarlo con verdades eternas
     * 2 Corintios 12:9
       - "Y me ha dicho: Bástate mi gracia; porque mi poder se perfecciona en la debilidad. Por tanto, de buena gana me gloriaré más bien en mis debilidades, para que repose sobre mí el poder de Cristo."
-    * Estamos aqui por el poder de Dios.
+    * Estamos aquí por el poder de Dios.
     * Juan 14:27
+      - "La paz os dejo, mi paz os doy; yo no os la doy como el mundo la da. No se turbe vuestro corazón, ni tenga miedo."
+  - **Dios puede dar de su paz incluso antes de que las circunstancais cambien**.**
+  - El mayor peligro es que nos malacostumbremos
+- La Sanidad de Dios no siempre elima el dolor inmediatamente pero si va a iluminar el camino
+- En Jesus, el dolor se puede convertir en Fortaleza para su Gloria.
+- Lo que fue un mal momento para mi, puede ser el testimonio que Dios quiere usar para ayudar la vida de alguien.
+- No esconda las maravillas que DIos ha hecho en su vida
+- Lo que fue una herida, Dios puede ocnvertirlo en un puente
+- Salmos 30:5
+- Dios puede convertir esas lagrimas que he derramado para abirr mis hojos y depender de el completamente
