@@ -43,12 +43,15 @@
     * Estamos aquí por el poder de Dios.
     * Juan 14:27
       - "La paz os dejo, mi paz os doy; yo no os la doy como el mundo la da. No se turbe vuestro corazón, ni tenga miedo."
-  - **Dios puede dar de su paz incluso antes de que las circunstancais cambien**.**
+  - **Dios puede dar de su paz incluso antes de que las circunstancias cambien**.
   - El mayor peligro es que nos malacostumbremos
-- La Sanidad de Dios no siempre elima el dolor inmediatamente pero si va a iluminar el camino
-- En Jesus, el dolor se puede convertir en Fortaleza para su Gloria.
-- Lo que fue un mal momento para mi, puede ser el testimonio que Dios quiere usar para ayudar la vida de alguien.
-- No esconda las maravillas que DIos ha hecho en su vida
-- Lo que fue una herida, Dios puede ocnvertirlo en un puente
+- La Sanidad de Dios no siempre elimina el dolor inmediatamente pero sí va a iluminar el camino
+- En Jesús, el dolor se puede convertir en Fortaleza para su Gloria.
+- Lo que fue un mal momento para mí, puede ser el testimonio que Dios quiere usar para ayudar la vida de alguien.
+- No esconda las maravillas que Dios ha hecho en su vida
+- Lo que fue una herida, Dios puede convertirlo en un puente
 - Salmos 30:5
-- Dios puede convertir esas lagrimas que he derramado para abirr mis hojos y depender de el completamente
+- Dios puede convertir esas lágrimas que he derramado para abrir mis ojos y depender de Él completamente
+- Por la noche vendra el lloro y por la ma;ana vendra la alegria (CITA)
+- Romanos 8:28
+- Por el dolor no estoy viendo el favor de Dios
