@@ -51,7 +51,13 @@
 - No esconda las maravillas que Dios ha hecho en su vida
 - Lo que fue una herida, Dios puede convertirlo en un puente
 - Salmos 30:5
+  - "Porque un momento será su ira, Pero su favor dura toda la vida. Por la noche durará el lloro, Y a la mañana vendrá la alegría."
 - Dios puede convertir esas lágrimas que he derramado para abrir mis ojos y depender de Él completamente
-- Por la noche vendra el lloro y por la ma;ana vendra la alegria (CITA)
+- Por la noche vendrá el lloro y por la mañana vendrá la alegría
+  - Salmos 30:5: "Porque un momento será su ira, Pero su favor dura toda la vida. Por la noche durará el lloro, Y a la mañana vendrá la alegría."
 - Romanos 8:28
+  - "Y sabemos que a los que aman a Dios, todas las cosas les ayudan a bien, esto es, a los que conforme a su propósito son llamados."
 - Por el dolor no estoy viendo el favor de Dios
+- Dios puede usar nuestro MAYOR dolor como una plataforma para dar luz a otras personas.
+- La herida que le entregas a Cristo se conveirte en un lugar en donde su gloria Resplandece.
+- Dios no usa una herida hasta que este sanada
