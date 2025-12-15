@@ -33,6 +33,9 @@
   ### #2 La Luz de Cristo Sana lo que la oscuridad profunda ha dañado
     * Salmos 34:18
       - "Cercano está Jehová a los quebrantados de corazón; Y salva a los contritos de espíritu."
-    * Es Dios mismo el que esta cercano.
-    * Jesus no solo senala lo que esta mal, sino lo sana
+    * Es Dios mismo el que está cercano.
+    * Jesús no solo señala lo que está mal, sino lo sana
     * Salmos 107:20
+      - "Envió su palabra, y los sanó, Y los libró de su ruina."
+    * Su palabra tiene la capacidad de eliminar heridas internas y reemplazarlo con verdades eternas
+    * 2 Corintios 12:9
