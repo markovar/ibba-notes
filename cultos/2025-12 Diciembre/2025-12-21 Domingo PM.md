@@ -43,3 +43,5 @@
 * Debo ver la fe de mis pastores e imitar su fe
 * El Señor añade a los que él quiere
     - Hechos 2:47: "alabando a Dios, y teniendo favor con todo el pueblo. Y el Señor añadía cada día a la iglesia los que habían de ser salvos."
+* SI no edifica no me conviene, lo dijo el espiritu santo que dice que no todo nos conviene no todo nos edifica (CITA)
+* 
