@@ -50,10 +50,10 @@
 * No todo el mundo puede tener acceso a mi corazón
 * Jesús dijo, el que no hace lo que yo digo, no puede ser mi amigo
     - Juan 15:14: "Vosotros sois mis amigos, si hacéis lo que yo os mando."
-* Lo que yo haga, mis hijos tambien lo van a hacer
-* Yo le voy a poner limite a mis hijos, lo bueno y lo malo.
-* En lugar de pensar quienes son mis amigos? enfoquemonos en **Quien Soy yo como amigo?**
-* Si me escogieran a mi como amigo? esa persona creceria en la Fe? 
-* Que tipo de amigo soy?
-* Soy un amigo que si se acercan a mi creceran en Cristo
-* o soy del tipo que si se acercan a mi, esas personas se estancaran
+* Lo que yo haga, mis hijos también lo van a hacer
+* Yo le voy a poner límite a mis hijos, lo bueno y lo malo.
+* En lugar de pensar ¿quiénes son mis amigos? enfoquémonos en **¿Quién soy yo como amigo?**
+* ¿Si me escogieran a mí como amigo? ¿esa persona crecería en la fe?
+* ¿Qué tipo de amigo soy?
+* Soy un amigo que si se acercan a mí crecerán en Cristo
+* o soy del tipo que si se acercan a mí, esas personas se estancarán
