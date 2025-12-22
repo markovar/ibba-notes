@@ -13,14 +13,15 @@
     - [15] "Ya no os llamaré siervos, porque el siervo no sabe lo que hace su señor; pero os he llamado amigos, porque todas las cosas que oí de mi Padre, os las he dado a conocer."
     - [16] "No me elegisteis vosotros a mí, sino que yo os elegí a vosotros, y os he puesto para que vayáis y llevéis fruto, y vuestro fruto permanezca; para que todo lo que pidiereis al Padre en mi nombre, él os lo dé."
     - [17] "Esto os mando: Que os améis unos a otros."
-* Hay un condicionante para ser amigo de Jesus: Si hacemos lo que el nos dice.(v14)
+* Hay un condicionante para ser amigo de Jesús: Si hacemos lo que él nos dice.(v14)
 * Muchos en nombre de la amistad han defendido cosas que son indefendibles.
-* Para decir "El es mi amigo" debe haber un filtro: Esta caminando conmigo juntos por el Señor
-* Usted no puede pretender jalar a todos sus amigos donde usted esta, mas bien elijalos bien.
+* Para decir "Él es mi amigo" debe haber un filtro: ¿Está caminando conmigo juntos por el Señor?
+* Usted no puede pretender jalar a todos sus amigos donde usted está, más bien elíjalos bien.
 * El amor incondicional es para el MATRIMONIO
-  * No es para la amistad, en la amistad Si hay condicion
-  * Hasta el mismo Jesus puso condiciones.
-* La verdadera amistad hay amor. Pero nunca a tal punto que me jalen hacia donde ellos estan
+  * No es para la amistad, en la amistad sí hay condición
+  * Hasta el mismo Jesús puso condiciones.
+* La verdadera amistad hay amor. Pero nunca a tal punto que me jalen hacia donde ellos están
 * Que cuando yo me acerco a personas mi vida crezca.
-* Hay que amarnos si, pero muchas veces el amor mas grande es decirle la verdad de que no esta pensando bien
+* Hay que amarnos sí, pero muchas veces el amor más grande es decirle la verdad de que no está pensando bien
 * Proverbios 13:20
+    - "El que anda con sabios, sabio será; Mas el que se junta con necios será quebrantado."
