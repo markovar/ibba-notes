@@ -41,4 +41,5 @@
 * Hebreos 13:7
     - "Acordaos de vuestros pastores, que os hablaron la palabra de Dios; considerad cuál haya sido el resultado de su conducta, e imitad su fe."
 * Debo ver la fe de mis pastores e imitar su fe
-* El senor ańande a los que el Quiere (CITA)
+* El Señor añade a los que él quiere
+    - Hechos 2:47: "alabando a Dios, y teniendo favor con todo el pueblo. Y el Señor añadía cada día a la iglesia los que habían de ser salvos."
