@@ -25,3 +25,7 @@
 * Hay que amarnos sí, pero muchas veces el amor más grande es decirle la verdad de que no está pensando bien
 * Proverbios 13:20
     - "El que anda con sabios, sabio será; Mas el que se junta con necios será quebrantado."
+* Como sabemos si es sabio o no? por sus decisiones.
+* Que decisiones esta tomando? Sabias? o necias?
+* Cristo es nuestro Centro de Adoracion
+* Hay que escuchar las personas correctas
