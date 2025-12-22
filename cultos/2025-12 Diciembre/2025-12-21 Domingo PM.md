@@ -36,7 +36,8 @@
 * Si la Biblia dice que el que se junta con necios será quebrantado, será quebrantado
 * 1 Corintios 15:33
     - "No erréis; las malas conversaciones corrompen las buenas costumbres."
-* Si Dios proveyo a sus hijos de alguien que los guie, haga equipo con ellos y de gloria a Dios.
+* Si Dios proveyó a sus hijos de alguien que los guíe, haga equipo con ellos y dé gloria a Dios.
 * Cada persona crece dependiendo del grupo de amigos en que caiga
 * Hebreos 13:7
+    - "Acordaos de vuestros pastores, que os hablaron la palabra de Dios; considerad cuál haya sido el resultado de su conducta, e imitad su fe."
 * Debo ver la fe de mis pastores e imitar su fe
