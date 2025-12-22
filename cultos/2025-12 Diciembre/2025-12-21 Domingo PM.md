@@ -29,3 +29,8 @@
 * ¿Qué decisiones está tomando? ¿Sabias? ¿o necias?
 * Cristo es nuestro Centro de Adoración
 * Hay que escuchar las personas correctas
+* No se crea la excepcion
+* No sea un sanson
+  * De esta me salgo igual que las demas (CITA)
+* Si la biblia dice que el que se junta con necios sera quebrantado, sera quebrantado
+* 1 Corintios 15:33
