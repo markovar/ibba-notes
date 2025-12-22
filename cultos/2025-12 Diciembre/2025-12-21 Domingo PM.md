@@ -1,9 +1,15 @@
-* Hay que escoger bien con quien me rodeo
-* Las Amistades y las relaciones determinan el rumbo espiritual
-* Quienes son mis mejores 5 amigos?
+* Hay que escoger bien con quién me rodeo
+* Las amistades y las relaciones determinan el rumbo espiritual
+* ¿Quiénes son mis mejores 5 amigos?
 * Somos un porcentaje muy alto de quienes me rodean.
-* Que revelan mis amistades acerca de mia?
+* ¿Qué revelan mis amistades acerca de mí?
 * Caminar con personas que nos edifican, que aman a Dios
-* Muestrame tus amigos y te mostrare tu futuro espiritual
-* Las relaciones es donde mas rapidamente nos damos cuenta si caminamos en la luz on en tinieblas
+* Muéstrame tus amigos y te mostraré tu futuro espiritual
+* Las relaciones es donde más rápidamente nos damos cuenta si caminamos en la luz o en tinieblas
 * Juan 15:12-17
+    - [12] "Este es mi mandamiento: Que os améis unos a otros, como yo os he amado."
+    - [13] "Nadie tiene mayor amor que este, que uno ponga su vida por sus amigos."
+    - [14] "Vosotros sois mis amigos, si hacéis lo que yo os mando."
+    - [15] "Ya no os llamaré siervos, porque el siervo no sabe lo que hace su señor; pero os he llamado amigos, porque todas las cosas que oí de mi Padre, os las he dado a conocer."
+    - [16] "No me elegisteis vosotros a mí, sino que yo os elegí a vosotros, y os he puesto para que vayáis y llevéis fruto, y vuestro fruto permanezca; para que todo lo que pidiereis al Padre en mi nombre, él os lo dé."
+    - [17] "Esto os mando: Que os améis unos a otros."
