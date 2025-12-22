@@ -43,9 +43,10 @@
 * Debo ver la fe de mis pastores e imitar su fe
 * El Señor añade a los que él quiere
     - Hechos 2:47: "alabando a Dios, y teniendo favor con todo el pueblo. Y el Señor añadía cada día a la iglesia los que habían de ser salvos."
-* SI no edifica no me conviene, lo dijo el espiritu santo que dice que no todo nos conviene no todo nos edifica (CITA)
-* Quienes tienen acceso a mi corazon?
-  * Ese circulo NO puede ser tan grande
-* No todo el mundo puede tener acceso a mi corazon
-* Jesus dijo, el que no hace lo que yo digo, no puede ser mi amigo (CITA)
-* 
+* Si no edifica no me conviene, lo dijo el Espíritu Santo que dice que no todo nos conviene no todo nos edifica
+    - 1 Corintios 10:23: "Todo me es lícito, pero no todo conviene; todo me es lícito, pero no todo edifica."
+* ¿Quiénes tienen acceso a mi corazón?
+  * Ese círculo NO puede ser tan grande
+* No todo el mundo puede tener acceso a mi corazón
+* Jesús dijo, el que no hace lo que yo digo, no puede ser mi amigo
+    - Juan 15:14: "Vosotros sois mis amigos, si hacéis lo que yo os mando."
