@@ -29,8 +29,10 @@
 * ¿Qué decisiones está tomando? ¿Sabias? ¿o necias?
 * Cristo es nuestro Centro de Adoración
 * Hay que escuchar las personas correctas
-* No se crea la excepcion
-* No sea un sanson
-  * De esta me salgo igual que las demas (CITA)
-* Si la biblia dice que el que se junta con necios sera quebrantado, sera quebrantado
+* No se crea la excepción
+* No sea un Sansón
+  * De esta me salgo igual que las demás
+    - Jueces 16:20: "Y le dijo: ¡Sansón, los filisteos sobre ti! Y luego que despertó él de su sueño, se dijo: Esta vez saldré como las otras y me escaparé. Pero él no sabía que Jehová ya se había apartado de él."
+* Si la Biblia dice que el que se junta con necios será quebrantado, será quebrantado
 * 1 Corintios 15:33
+    - "No erréis; las malas conversaciones corrompen las buenas costumbres."
