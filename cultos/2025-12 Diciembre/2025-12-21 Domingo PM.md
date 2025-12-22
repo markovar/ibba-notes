@@ -41,3 +41,4 @@
 * Hebreos 13:7
     - "Acordaos de vuestros pastores, que os hablaron la palabra de Dios; considerad cuál haya sido el resultado de su conducta, e imitad su fe."
 * Debo ver la fe de mis pastores e imitar su fe
+* El senor ańande a los que el Quiere (CITA)
