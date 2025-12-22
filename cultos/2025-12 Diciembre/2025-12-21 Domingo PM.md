@@ -44,4 +44,8 @@
 * El Señor añade a los que él quiere
     - Hechos 2:47: "alabando a Dios, y teniendo favor con todo el pueblo. Y el Señor añadía cada día a la iglesia los que habían de ser salvos."
 * SI no edifica no me conviene, lo dijo el espiritu santo que dice que no todo nos conviene no todo nos edifica (CITA)
+* Quienes tienen acceso a mi corazon?
+  * Ese circulo NO puede ser tan grande
+* No todo el mundo puede tener acceso a mi corazon
+* Jesus dijo, el que no hace lo que yo digo, no puede ser mi amigo (CITA)
 * 
